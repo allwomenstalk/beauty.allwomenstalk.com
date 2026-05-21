@@ -3,7 +3,7 @@ title: "7 Weird Facial Treatments Thatll Make You Squirm ..."
 description: "Caviar Facial; Bee Venom Mask; Placenta Face Cream; Bird’s Poo Facial; Snake Venom Cream; More ..."
 url: "https://beauty.allwomenstalk.com/weird-facial-treatments-thatll-make-you-squirm/"
 category: "beauty"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Weird Facial Treatments Thatll Make You Squirm ...
@@ -56,16 +56,16 @@ All of these facial treatments are pretty bizarre for my taste. They are just ri
 
 ## Related Posts
 
-- [boscia willow bark spot treatment](https://beauty.allwomenstalk.com/best-acne-treatments/)
-- [fab feet](https://beauty.allwomenstalk.com/best-foot-creams/)
-- [best dark circle treatments](https://beauty.allwomenstalk.com/best-dark-under-eye-circle-treatments/)
+- [facial soap brands](https://beauty.allwomenstalk.com/best-facial-cleansers/)
 - [best body oils for skin](https://beauty.allwomenstalk.com/best-body-oils/)
-- [top 10 tinted moisturizers](https://beauty.allwomenstalk.com/best-tinted-moisturizers/)
 - [mac luminizer](https://makeup.allwomenstalk.com/best-facial-luminizers-for-the-most-perfect-looking-skin/)
+- [oil wipes for face target](https://beauty.allwomenstalk.com/best-facial-wipes/)
+- [boscia willow bark spot treatment](https://beauty.allwomenstalk.com/best-acne-treatments/)
+- [best dark circle treatments](https://beauty.allwomenstalk.com/best-dark-under-eye-circle-treatments/)
+- [fab feet](https://beauty.allwomenstalk.com/best-foot-creams/)
+- [top 10 tinted moisturizers](https://beauty.allwomenstalk.com/best-tinted-moisturizers/)
 - [yes to carrots daily facial moisturizer](https://skincare.allwomenstalk.com/best-skincare-products-you-can-buy-at-the-drugstore/)
 - [hands of hope cream](https://beauty.allwomenstalk.com/best-hand-creams/)
-- [oil wipes for face target](https://beauty.allwomenstalk.com/best-facial-wipes/)
-- [facial soap brands](https://beauty.allwomenstalk.com/best-facial-cleansers/)
 - [7 Night Treatments for Amazing Skin ...](https://skincare.allwomenstalk.com/night-treatments-for-amazing-skin/)
 - [7 Best Facial Scrubs ...](https://allwomenstalk.com/6-best-facial-scrubs/)
 

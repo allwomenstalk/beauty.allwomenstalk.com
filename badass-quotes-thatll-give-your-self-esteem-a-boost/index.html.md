@@ -3,7 +3,7 @@ title: "10 Badass Quotes to Give Your Self-Esteem a Major Boost ..."
 description: "“No One Can Make You Inferior without Your Consent”; “Take Care How You Speak to Yourself Because You Are Listening”; “Wanting to Be Someone else is a Waste of the Person You Are”; “Don’t Let What You Can’t do Stop You from What You Can do”; “Courage + Self-Esteem = Confidence”; More ..."
 url: "https://beauty.allwomenstalk.com/badass-quotes-thatll-give-your-self-esteem-a-boost/"
 category: "beauty"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 10 Badass Quotes  to Give Your Self\-Esteem a Major Boost ...
@@ -55,15 +55,15 @@ Which of these quotes is your favourite? Which quote would you add?
 ## Related Posts
 
 - [john green wuotes](https://love.allwomenstalk.com/sweet-john-green-quotes-about-love/)
-- [collateral damage quotes](https://celebs.allwomenstalk.com/these-ricky-gervais-quotes-prove-hes-the-greatest/)
-- [broad city quote](https://funny.allwomenstalk.com/broad-city-quotes-about-life-we-can-totally-relate-to/)
-- [shakespeare love quotes sonnets](https://love.allwomenstalk.com/what-shakespeare-had-to-say-about-love/)
-- [calming down quotes](https://inspiration.allwomenstalk.com/quotes-to-calm-you-down-whenever-youre-pissed/)
-- [a quote from lupita nyongo](https://celebs.allwomenstalk.com/inspirational-quotes-from-the-lovely-lupita-nyongo/)
-- [all we have is who we are meaning](https://inspiration.allwomenstalk.com/quotes-to-inspire-you-right-now/)
-- [saying about reading](https://books.allwomenstalk.com/these-quotes-will-motivate-you-to-read/)
 - [jim carrey speeches](https://inspiration.allwomenstalk.com/the-most-inspirational-college-commencement-speeches/)
+- [shakespeare love quotes sonnets](https://love.allwomenstalk.com/what-shakespeare-had-to-say-about-love/)
+- [collateral damage quotes](https://celebs.allwomenstalk.com/these-ricky-gervais-quotes-prove-hes-the-greatest/)
+- [calming down quotes](https://inspiration.allwomenstalk.com/quotes-to-calm-you-down-whenever-youre-pissed/)
 - [deep sad poems](https://inspiration.allwomenstalk.com/poems-thatll-express-the-feelings-youve-struggled-to-deal-with/)
+- [saying about reading](https://books.allwomenstalk.com/these-quotes-will-motivate-you-to-read/)
+- [a quote from lupita nyongo](https://celebs.allwomenstalk.com/inspirational-quotes-from-the-lovely-lupita-nyongo/)
+- [broad city quote](https://funny.allwomenstalk.com/broad-city-quotes-about-life-we-can-totally-relate-to/)
+- [all we have is who we are meaning](https://inspiration.allwomenstalk.com/quotes-to-inspire-you-right-now/)
 - [50 Quotes to Empower and Inspire Women ...](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)
 - [10 Favorite Quotes ...](https://allwomenstalk.com/10-favorite-quotes/)
 
