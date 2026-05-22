@@ -3,7 +3,7 @@ title: "7 Seriously Weird Beauty Ingredients Women Used in the past ..."
 description: "Lead; Arsenic; Animal Fat; False Teeth; Blood; More ..."
 url: "https://beauty.allwomenstalk.com/strange-beauty-ingredients-women-used-in-the-past/"
 category: "beauty"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Seriously Weird Beauty Ingredients Women Used in the past ...
@@ -42,16 +42,16 @@ During the war years, cosmetics were scarce, so women had to be resourceful. Our
 
 ## Related Posts
 
-- [eco friendly beauty tips](https://beauty.allwomenstalk.com/amazing-eco-friendly-beauty-tips/)
 - [aerosmith fashion](https://beauty.allwomenstalk.com/beauty-secrets-from-aerosmiths-steven-tyler/)
-- [women with beautiful hair](https://beauty.allwomenstalk.com/beauty-tips-for-women-with-dark-hair/)
 - [model with thick eyebrows cara](https://beauty.allwomenstalk.com/timeless-beauty-looks-thatll-always-be-in-style/)
-- [marilyn monroe makeup quotes](https://beauty.allwomenstalk.com/inspiring-bits-of-beauty-advice-from-marilyn-monroe/)
-- [melissa mccarthy ginger](https://beauty.allwomenstalk.com/beauty-lessons-we-can-learn-from-melissa-mccarthy/)
-- [superstar make up](https://beauty.allwomenstalk.com/top-beauty-tips-to-make-you-look-like-a-superstar/)
 - [splendid beauty salon](https://beauty.allwomenstalk.com/splendid-beauty-tips-for-redheads/)
-- [skincare infographics](https://beauty.allwomenstalk.com/helpful-beauty-infographics-to-pore-over/)
+- [melissa mccarthy ginger](https://beauty.allwomenstalk.com/beauty-lessons-we-can-learn-from-melissa-mccarthy/)
+- [marilyn monroe makeup quotes](https://beauty.allwomenstalk.com/inspiring-bits-of-beauty-advice-from-marilyn-monroe/)
+- [women with beautiful hair](https://beauty.allwomenstalk.com/beauty-tips-for-women-with-dark-hair/)
+- [superstar make up](https://beauty.allwomenstalk.com/top-beauty-tips-to-make-you-look-like-a-superstar/)
 - [uses of wax](https://beauty.allwomenstalk.com/uses-for-wax-in-the-beauty-industry/)
+- [eco friendly beauty tips](https://beauty.allwomenstalk.com/amazing-eco-friendly-beauty-tips/)
+- [skincare infographics](https://beauty.allwomenstalk.com/helpful-beauty-infographics-to-pore-over/)
 - [7 Cult-Classic Beauty Products ...](https://allwomenstalk.com/7-cult-classic-beauty-products/)
 - [7 Weird and Wonderful Beauty Treatments ...](https://allwomenstalk.com/7-weird-and-wonderful-beauty-treatments/)
 

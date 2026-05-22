@@ -3,7 +3,7 @@ title: "CHANELs New Lip Shades Are Here and You Wont Believe..."
 description: "Shimmering Elegance: ROUGE COCO FLASH; Bold Statements: ROUGE ALLURE LAQUE; More ..."
 url: "https://beauty.allwomenstalk.com/captivating-colors-chanel-lip-collection/"
 category: "beauty"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # CHANELs New Lip Shades Are Here and You Wont Believe...
