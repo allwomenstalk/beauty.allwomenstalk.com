@@ -36,16 +36,16 @@ This is a great little gadget that can really help out your tired working eyes. 
 
 ## Related Posts
 
-- [Makeup for Darker Skins Catwalk Catastrophe Matthe...](https://allwomenstalk.com/makeup-for-darker-skins-catwalk-catastrophe-matthew-williamson-perfumes/)
-- [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
-- [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
-- [dominique mandonnaud](https://allwomenstalk.com/sephora-business-model-before-and-after-transformation/)
-- [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
-- [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
 - [truly beauty sets](https://beauty.allwomenstalk.com/truly-fabulous-beauty-stocking-stuffers-under-25-for-the-girl-on-your-christmas-list/)
-- [mn eyeshadow palette](https://makeup.allwomenstalk.com/iconic-luxury-eyeshadow-palettes/)
+- [Makeup for Darker Skins Catwalk Catastrophe Matthe...](https://allwomenstalk.com/makeup-for-darker-skins-catwalk-catastrophe-matthew-williamson-perfumes/)
+- [dominique mandonnaud](https://allwomenstalk.com/sephora-business-model-before-and-after-transformation/)
+- [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
 - [loreal riche le stylo shadow bottomless](https://makeup.allwomenstalk.com/awesome-places-to-buy-makeup-that-arent-sephora/)
+- [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
+- [mn eyeshadow palette](https://makeup.allwomenstalk.com/iconic-luxury-eyeshadow-palettes/)
 - [everyday look makeup](https://makeup.allwomenstalk.com/must-have-makeup-items-for-that-everyday-look/)
+- [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
+- [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
 - [8 Summer Beauty Tips ...](https://skincare.allwomenstalk.com/summer-beauty-tips/)
 - [7 Summer Beauty Tips ...](https://makeup.allwomenstalk.com/summer-beauty-tips-2/)
 

@@ -123,16 +123,16 @@ I hope you give some of these excellent lip glosses a try. Although we all have 
 
 ## Related Posts
 
-- [fall lipstick colors 2023](https://makeup.allwomenstalk.com/fall-lipstick-colors-to-try/)
-- [dark lipstick looks](https://makeup.allwomenstalk.com/essential-tips-on-pulling-off-dark-lipstick/)
-- [best volumizing waterproof mascara](https://beauty.allwomenstalk.com/best-waterproof-mascaras/)
-- [best felt tip eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners/)
-- [color le smoky unforgettable lilac](https://makeup.allwomenstalk.com/luscious-lipsticks-for-valentines-day/)
-- [bigelow rose salve](https://beauty.allwomenstalk.com/top-best-lip-balms/)
-- [lips fuller](https://makeup.allwomenstalk.com/ways-to-make-your-lips-look-fuller/)
-- [lipstick colours for tan skin](https://makeup.allwomenstalk.com/of-the-best-lipsticks-for-blondes/)
-- [loreal paris color riche le stylo smoldering plum](https://makeup.allwomenstalk.com/luscious-lip-enhancers-thatll-transform-your-lips/)
 - [bold lip colors](https://makeup.allwomenstalk.com/bold-lip-colors-that-arent-for-the-faint-of-heart/)
+- [fall lipstick colors 2023](https://makeup.allwomenstalk.com/fall-lipstick-colors-to-try/)
+- [color le smoky unforgettable lilac](https://makeup.allwomenstalk.com/luscious-lipsticks-for-valentines-day/)
+- [dark lipstick looks](https://makeup.allwomenstalk.com/essential-tips-on-pulling-off-dark-lipstick/)
+- [best felt tip eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners/)
+- [loreal paris color riche le stylo smoldering plum](https://makeup.allwomenstalk.com/luscious-lip-enhancers-thatll-transform-your-lips/)
+- [best volumizing waterproof mascara](https://beauty.allwomenstalk.com/best-waterproof-mascaras/)
+- [bigelow rose salve](https://beauty.allwomenstalk.com/top-best-lip-balms/)
+- [lipstick colours for tan skin](https://makeup.allwomenstalk.com/of-the-best-lipsticks-for-blondes/)
+- [lips fuller](https://makeup.allwomenstalk.com/ways-to-make-your-lips-look-fuller/)
 - [9 Charmingly Sweet  Pleasantly Fabulous Flavored L...](https://makeup.allwomenstalk.com/charmingly-sweet-pleasantly-fabulous-flavored-lip-glosses/)
 - [Top 8 Super Glamorous Plumping Lip Glosses ...](https://makeup.allwomenstalk.com/top-super-glamorous-plumping-lip-glosses/)
 

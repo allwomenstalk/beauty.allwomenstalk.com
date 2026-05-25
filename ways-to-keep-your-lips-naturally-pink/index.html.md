@@ -48,16 +48,16 @@ Top Image Source: _dnamodels.com_
 
 ## Related Posts
 
-- [pink lip palette](https://makeup.allwomenstalk.com/best-lipstick-palettes-that-i-love/)
-- [sephora golden ticket](https://makeup.allwomenstalk.com/fun-lipstick-colors-to-make-a-statement/)
-- [stiletto mascara](https://makeup.allwomenstalk.com/worst-mascaras-to-steer-clear-of/)
+- [jewel tone eyes](https://makeup.allwomenstalk.com/gorgeous-jewel-tone-lipsticks-for-winter/)
+- [best fibre lash mascara](https://beauty.allwomenstalk.com/best-fiber-mascaras-for-flirty-lashes/)
+- [smokey makeup with red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-pull-of-bold-lips/)
 - [blush shade for dark skin](https://makeup.allwomenstalk.com/blush-colors-for-dark-skin-that-i-love/)
 - [cool toned lip colors](https://makeup.allwomenstalk.com/tips-on-picking-the-perfect-lipstick-for-your-skin-tone/)
 - [too faced sunday funday](https://makeup.allwomenstalk.com/best-nude-lipsticks/)
+- [pink lip palette](https://makeup.allwomenstalk.com/best-lipstick-palettes-that-i-love/)
+- [sephora golden ticket](https://makeup.allwomenstalk.com/fun-lipstick-colors-to-make-a-statement/)
+- [stiletto mascara](https://makeup.allwomenstalk.com/worst-mascaras-to-steer-clear-of/)
 - [best natural shade lipstick](https://makeup.allwomenstalk.com/best-nearly-nude-lipsticks-for-fall/)
-- [best fibre lash mascara](https://beauty.allwomenstalk.com/best-fiber-mascaras-for-flirty-lashes/)
-- [smokey makeup with red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-pull-of-bold-lips/)
-- [jewel tone eyes](https://makeup.allwomenstalk.com/gorgeous-jewel-tone-lipsticks-for-winter/)
 - [8 Different Ways to Make Your Lips Look Bigger ...](https://beauty.allwomenstalk.com/different-ways-to-make-your-lips-look-bigger/)
 - [8 Steps for Perfect Red Lips ...](https://allwomenstalk.com/8-steps-for-perfect-red-lips/)
 

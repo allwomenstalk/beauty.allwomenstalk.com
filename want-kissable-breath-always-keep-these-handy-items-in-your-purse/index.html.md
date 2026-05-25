@@ -56,16 +56,16 @@ These are 7 things you can throw in your purse to make sure you always have kiss
 
 ## Related Posts
 
-- [crannbery](https://health.allwomenstalk.com/home-remedies-for-urinary-tract-infections/)
-- [spice girls spice rack](https://health.allwomenstalk.com/raid-your-spice-rack-for-some-brilliant-home-remedies/)
-- [7 Natural Ways to Get Energized without Caffeine ....](https://health.allwomenstalk.com/natural-ways-to-get-energized-without-caffeine/)
-- [7 Simple Solutions for Ladies with Low Iron Levels...](https://health.allwomenstalk.com/simple-solutions-for-ladies-with-low-iron-levels/)
-- [Soothe Your Sore Throat  with Ingredients You Alre...](https://health.allwomenstalk.com/sore-throat-soothers-you-already-have-in-your-kitchen/)
-- [7 Yoga Poses Thatll Cure Headaches ...](https://health.allwomenstalk.com/yoga-poses-thatll-cure-headaches/)
 - [Cleanse Your Body with the 7 Best Detox Waters in ...](https://health.allwomenstalk.com/cleanse-your-body-with-the-best-detox-waters-in-the-world/)
+- [7 Natural Ways to Get Energized without Caffeine ....](https://health.allwomenstalk.com/natural-ways-to-get-energized-without-caffeine/)
+- [7 Yoga Poses Thatll Cure Headaches ...](https://health.allwomenstalk.com/yoga-poses-thatll-cure-headaches/)
+- [spice girls spice rack](https://health.allwomenstalk.com/raid-your-spice-rack-for-some-brilliant-home-remedies/)
+- [crannbery](https://health.allwomenstalk.com/home-remedies-for-urinary-tract-infections/)
+- [7 Simple Solutions for Ladies with Low Iron Levels...](https://health.allwomenstalk.com/simple-solutions-for-ladies-with-low-iron-levels/)
 - [The Top Tips for Soothing a Painful Sunburn ...](https://skincare.allwomenstalk.com/the-top-tips-for-soothing-a-painful-sunburn/)
 - [7 Ways to Get Rid of That Never-Ending Mosquito It...](https://health.allwomenstalk.com/ways-to-get-rid-of-that-never-ending-mosquito-itch/)
 - [Natural Ways to Ease a Migraine ...](https://health.allwomenstalk.com/natural-ways-to-ease-a-migraine/)
+- [Soothe Your Sore Throat  with Ingredients You Alre...](https://health.allwomenstalk.com/sore-throat-soothers-you-already-have-in-your-kitchen/)
 - [Help Prevent Yeast Infections with These Tips ...](https://health.allwomenstalk.com/things-that-help-prevent-yeast-infections/)
 - [7 Clever Tips to Keep Your Bathroom Clean Always ....](https://diy.allwomenstalk.com/clever-tips-to-keep-your-bathroom-clean-always/)
 

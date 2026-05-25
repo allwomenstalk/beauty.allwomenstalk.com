@@ -56,16 +56,16 @@ What are your favorite fashion tattoos? Would you ever get any of these tattoos 
 
 ## Related Posts
 
-- [fashion inspos](https://streetstyle.allwomenstalk.com/kate-middletons-street-style-inspos-you-can-copy/)
-- [zoe kravitz y penn badgley](https://celebs.allwomenstalk.com/zoe-kravitz-street-style-petite-girls-will-love/)
-- [victoria justice](https://celebs.allwomenstalk.com/steal-the-style-of-victoria-justice/)
-- [paris stylo smoky icon](https://fashion.allwomenstalk.com/which-of-these-fashion-icons-are-you/)
-- [mindy kaling fashion](https://celebs.allwomenstalk.com/get-a-little-fashion-inspo-from-mindy-kalings-lookbook/)
-- [do women like jewelry on men](https://jewelry.allwomenstalk.com/its-sexy-to-see-men-wearing-these-pieces-of-jewelry/)
-- [celebs in leggings](https://celebs.allwomenstalk.com/pins-on-parade-celebs-giving-lessons-in-leggings/)
-- [fashion designers in africa](https://fashion.allwomenstalk.com/african-fashion-designers-making-waves/)
-- [is gabby douglas married](https://fitness.allwomenstalk.com/this-is-why-gabby-douglas-is-my-fitness-and-fashion-hero/)
 - [dstyle models](https://streetstyle.allwomenstalk.com/these-models-have-the-best-street-style/)
+- [zoe kravitz y penn badgley](https://celebs.allwomenstalk.com/zoe-kravitz-street-style-petite-girls-will-love/)
+- [mindy kaling fashion](https://celebs.allwomenstalk.com/get-a-little-fashion-inspo-from-mindy-kalings-lookbook/)
+- [victoria justice](https://celebs.allwomenstalk.com/steal-the-style-of-victoria-justice/)
+- [fashion inspos](https://streetstyle.allwomenstalk.com/kate-middletons-street-style-inspos-you-can-copy/)
+- [fashion designers in africa](https://fashion.allwomenstalk.com/african-fashion-designers-making-waves/)
+- [celebs in leggings](https://celebs.allwomenstalk.com/pins-on-parade-celebs-giving-lessons-in-leggings/)
+- [paris stylo smoky icon](https://fashion.allwomenstalk.com/which-of-these-fashion-icons-are-you/)
+- [do women like jewelry on men](https://jewelry.allwomenstalk.com/its-sexy-to-see-men-wearing-these-pieces-of-jewelry/)
+- [is gabby douglas married](https://fitness.allwomenstalk.com/this-is-why-gabby-douglas-is-my-fitness-and-fashion-hero/)
 - [Colorforms for Fashionistas ...](https://allwomenstalk.com/colorforms-for-fashionistas/)
 - [Fashion Designer Must-Haves ...](https://allwomenstalk.com/fashion-designer-must-haves/)
 

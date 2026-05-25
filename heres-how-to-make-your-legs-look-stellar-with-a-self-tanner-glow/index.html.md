@@ -56,16 +56,16 @@ The reason I love a fake tan on my legs is because it instantly makes them look 
 
 ## Related Posts
 
-- [emotional detox quotes](https://inspiration.allwomenstalk.com/ways-to-detoxyour-junk-emotions-for-girls-who-feel-out-of-control/)
-- [faux fashion blunder](https://fashion.allwomenstalk.com/everyday-fashion-blunder-fixes-all-girls-should-know/)
-- [stop obsessing over a girl](https://inspiration.allwomenstalk.com/surefire-tips-to-help-you-stop-obsessing-for-girls-who-need-to-get-their-minds-elsewhere/)
 - [7 Kick-Ass Winning Habits for Girls Who Want to Tr...](https://inspiration.allwomenstalk.com/kick-ass-winning-habits-for-girls-who-want-to-triumph-in-life/)
 - [lovedignity.com dirty talk](https://love.allwomenstalk.com/the-foolproof-guide-to-dirty-talk-for-girls-who-are-nervous-to-try/)
-- [that girl journal ideas](https://lifestyle.allwomenstalk.com/insanely-creative-first-page-ideas-for-girls-who-are-starting-a-journal/)
-- [girls plants](https://gardening.allwomenstalk.com/plants-to-keep-around-for-girls-needing-more-positive-energy/)
 - [strip cartoon example](https://funny.allwomenstalk.com/cartoons-that-express-everyday-girl-problems-we-all-face/)
+- [girls plants](https://gardening.allwomenstalk.com/plants-to-keep-around-for-girls-needing-more-positive-energy/)
+- [emotional detox quotes](https://inspiration.allwomenstalk.com/ways-to-detoxyour-junk-emotions-for-girls-who-feel-out-of-control/)
+- [that girl journal ideas](https://lifestyle.allwomenstalk.com/insanely-creative-first-page-ideas-for-girls-who-are-starting-a-journal/)
+- [faux fashion blunder](https://fashion.allwomenstalk.com/everyday-fashion-blunder-fixes-all-girls-should-know/)
 - [douche game](https://love.allwomenstalk.com/game-changers-for-girls-who-want-to-stop-dating-douche-bags/)
 - [simple kiss](https://love.allwomenstalk.com/complete-step-by-step-guide-to-a-perfect-first-kiss-for-girls-who-are-feeling-nervous/)
+- [stop obsessing over a girl](https://inspiration.allwomenstalk.com/surefire-tips-to-help-you-stop-obsessing-for-girls-who-need-to-get-their-minds-elsewhere/)
 - [7 Makeup Tips for Girls ...](https://allwomenstalk.com/7-makeup-tips-for-girls/)
 - [7 Makeup Must-Haves for Teen Girls ...](https://allwomenstalk.com/7-makeup-must-haves-for-teen-girls/)
 

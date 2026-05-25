@@ -42,16 +42,16 @@ These’re 7 reasons to embrace your beautiful braces. Do you have braces? Do an
 
 ## Related Posts
 
-- [reasons why you are amazing](https://inspiration.allwomenstalk.com/reasons-you-should-keep-a-journal/)
-- [why traveling is good for your health](https://travel.allwomenstalk.com/reasons-travel-is-good-for-your-health/)
-- [reasons to have a website](https://lifestyle.allwomenstalk.com/reasons-why-you-should-start-your-own-website/)
-- [all womens talk](https://apps.allwomenstalk.com/reasons-to-join-allwomenstalks-write-and-earn-program/)
-- [is roller derby a womens sport](https://lifestyle.allwomenstalk.com/reasons-to-do-roller-derby/)
-- [entrepreneur 5 reasons](https://lifestyle.allwomenstalk.com/reasons-to-become-a-social-entrepreneur/)
 - [millennial mother](https://parenting.allwomenstalk.com/reasons-why-being-a-millennial-mom-totally-rocks/)
+- [entrepreneur 5 reasons](https://lifestyle.allwomenstalk.com/reasons-to-become-a-social-entrepreneur/)
+- [reasons to have a website](https://lifestyle.allwomenstalk.com/reasons-why-you-should-start-your-own-website/)
+- [is roller derby a womens sport](https://lifestyle.allwomenstalk.com/reasons-to-do-roller-derby/)
 - [reasons for becoming a parent](https://parenting.allwomenstalk.com/reasons-being-a-parent-is-awesome/)
-- [iridiologist](https://health.allwomenstalk.com/reasons-to-visit-an-iridologist/)
+- [why traveling is good for your health](https://travel.allwomenstalk.com/reasons-travel-is-good-for-your-health/)
+- [all womens talk](https://apps.allwomenstalk.com/reasons-to-join-allwomenstalks-write-and-earn-program/)
 - [ishowstrength](https://fitness.allwomenstalk.com/this-is-how-strength-training-can-give-you-the-best-body-of-your-life/)
+- [reasons why you are amazing](https://inspiration.allwomenstalk.com/reasons-you-should-keep-a-journal/)
+- [iridiologist](https://health.allwomenstalk.com/reasons-to-visit-an-iridologist/)
 - [5 Reasons to Smile about Your Garden ...](https://gardening.allwomenstalk.com/5-reasons-to-smile-about-your-garden/)
 - [7 Reasons I Heart Highlights ...](https://hair.allwomenstalk.com/7-reasons-i-heart-highlights/)
 

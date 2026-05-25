@@ -56,16 +56,16 @@ Eventually, tattoos won't be a deal breaker when it comes to getting a job. Howe
 
 ## Related Posts
 
-- [the 3 things you should do first if you lose your ...](https://money.allwomenstalk.com/important-first-steps-to-take-when-you-lose-your-job/)
+- [skills needed to become an entrepreneur](https://money.allwomenstalk.com/skills-you-need-to-be-an-entrepreneur/)
+- [lawyer personality types](https://money.allwomenstalk.com/useful-infographics-to-help-your-career/)
 - [so you got stumped in a job interview. here s how ...](https://money.allwomenstalk.com/things-you-should-do-if-you-are-stumped-during-a-job-interview/)
 - [careers that pay you to travel](https://travel.allwomenstalk.com/careers-that-could-take-you-around-the-world/)
-- [business savvy](https://apps.allwomenstalk.com/websites-to-make-you-business-savvy/)
-- [skills needed to become an entrepreneur](https://money.allwomenstalk.com/skills-you-need-to-be-an-entrepreneur/)
-- [dilbert salary](https://funny.allwomenstalk.com/wry-observations-of-life-at-work-by-dilbert/)
-- [what to say for a follow up interview](https://money.allwomenstalk.com/things-to-say-in-your-interview-follow-up-letter/)
 - [i dont want to become a doctor](https://money.allwomenstalk.com/careers-in-medicine-if-you-dont-want-to-be-a-doctor/)
-- [lawyer personality types](https://money.allwomenstalk.com/useful-infographics-to-help-your-career/)
 - [describe me in one word](https://money.allwomenstalk.com/words-to-describe-yourself-with-to-ace-an-interview/)
+- [what to say for a follow up interview](https://money.allwomenstalk.com/things-to-say-in-your-interview-follow-up-letter/)
+- [dilbert salary](https://funny.allwomenstalk.com/wry-observations-of-life-at-work-by-dilbert/)
+- [business savvy](https://apps.allwomenstalk.com/websites-to-make-you-business-savvy/)
+- [the 3 things you should do first if you lose your ...](https://money.allwomenstalk.com/important-first-steps-to-take-when-you-lose-your-job/)
 - [7 Tips on Applying for a Job ...](https://parenting.allwomenstalk.com/7-tips-on-applying-for-a-job/)
 - [7 Fashion Faux-Pas to Avoid ...](https://allwomenstalk.com/7-fashion-faux-pas-to-avoid/)
 

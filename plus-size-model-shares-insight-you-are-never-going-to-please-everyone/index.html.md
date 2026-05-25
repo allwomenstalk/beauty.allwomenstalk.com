@@ -20,16 +20,16 @@ I couldn't agree more! I think it's important that people like Denise use their 
 
 ## Related Posts
 
-- [serena van der woodsen outfit](https://streetstyle.allwomenstalk.com/street-style-ways-to-channel-serena-van-der-woodsen-this-fall/)
 - [festival ourfits](https://fashion.allwomenstalk.com/steal-her-style-blake-livelys-latest-pregnancy-style-is-too-cute/)
-- [girls looking good](https://streetstyle.allwomenstalk.com/girls-on-bikes-looking-good-street-style/)
 - [loreal paris color riche le stylo shadow skirt](https://streetstyle.allwomenstalk.com/street-style-business-chic-looks-to-recreate-this-fall/)
 - [ariana grande red wig](https://fashion.allwomenstalk.com/times-ariana-grande-proved-shes-a-fashion-queen/)
-- [fashion memoirs](https://fashion.allwomenstalk.com/important-people-in-fashion-who-wrote-memoirs-worth-reading/)
 - [are chokers appropriate for work](https://jewelry.allwomenstalk.com/hot-trend-alert-rock-a-backwards-choker-like-your-fave-celeb/)
+- [fashion memoirs](https://fashion.allwomenstalk.com/important-people-in-fashion-who-wrote-memoirs-worth-reading/)
 - [most influential person in fashion](https://fashion.allwomenstalk.com/most-influential-people-in-fashion/)
-- [rachel talbott](https://fashion.allwomenstalk.com/vloggers-with-gorgeous-fashion-sense/)
+- [serena van der woodsen outfit](https://streetstyle.allwomenstalk.com/street-style-ways-to-channel-serena-van-der-woodsen-this-fall/)
 - [fall magazine covers](https://fashion.allwomenstalk.com/these-controversial-fashion-magazine-covers-will-make-you-gasp/)
+- [rachel talbott](https://fashion.allwomenstalk.com/vloggers-with-gorgeous-fashion-sense/)
+- [girls looking good](https://streetstyle.allwomenstalk.com/girls-on-bikes-looking-good-street-style/)
 - [Size Does Not Always Matter](https://allwomenstalk.com/size-does-not-always-matter/)
 - [Models Not Just a Pretty Face.](https://allwomenstalk.com/models-not-just-a-pretty-face/)
 

@@ -42,16 +42,16 @@ In all honesty, the best tip for shaping thin eyebrows (or any brows in general)
 
 ## Related Posts
 
-- [eyebrow shaping techniques](https://beauty.allwomenstalk.com/beginners-eyebrow-shaping-tips-for-girls-wanting-perfect-brows/)
-- [classic bridal makeup](https://wedding.allwomenstalk.com/bridal-makeup-inspos-from-youtube-for-your-big-day/)
-- [makeup blonde hair brown eyes](https://makeup.allwomenstalk.com/genius-beauty-tips-for-diy-prom-makeup-like-a-pro/)
 - [color riche le smoky eye garnet](https://makeup.allwomenstalk.com/ways-the-right-eyeliner-affects-your-eye-shape/)
 - [paris riche primped](https://makeup.allwomenstalk.com/beauty-bloggers-are-flocking-to-this-feather-eyebrows-trend/)
-- [stylish makeup for girls](https://makeup.allwomenstalk.com/how-to-spot-fake-vs-designer-makeup-for-girls-wanting-to-make-sure-its-legit/)
+- [makeup blonde hair brown eyes](https://makeup.allwomenstalk.com/genius-beauty-tips-for-diy-prom-makeup-like-a-pro/)
 - [loreal paris riche le stylo shadow primped and pre...](https://makeup.allwomenstalk.com/totally-cool-new-eye-makeup-trends-of-youve-got-to-see/)
+- [stylish makeup for girls](https://makeup.allwomenstalk.com/how-to-spot-fake-vs-designer-makeup-for-girls-wanting-to-make-sure-its-legit/)
 - [line of demarcation makeup](https://makeup.allwomenstalk.com/expert-tips-to-look-like-youre-not-wearing-makeup/)
+- [eyebrow shaping techniques](https://beauty.allwomenstalk.com/beginners-eyebrow-shaping-tips-for-girls-wanting-perfect-brows/)
 - [envious clothing](https://makeup.allwomenstalk.com/this-goddess-will-make-you-envious-of-her-makeup-techniques/)
 - [girls makeup photo](https://makeup.allwomenstalk.com/this-girl-brings-indian-makeup-looks-to-a-whole-new-level-must-see/)
+- [classic bridal makeup](https://wedding.allwomenstalk.com/bridal-makeup-inspos-from-youtube-for-your-big-day/)
 - [8 Simple Steps to Regrow over-plucked Eyebrows ...](https://beauty.allwomenstalk.com/simple-steps-to-regrow-over-plucked-eyebrows/)
 - [Really Useful Infographics : How to Get the Perfec...](https://beauty.allwomenstalk.com/really-useful-infographics-how-to-get-the-perfect-eyebrows/)
 

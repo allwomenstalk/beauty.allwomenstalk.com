@@ -16,16 +16,16 @@ If you are a curvy girl yourself but have yet to find ways to be confident with 
 
 ## Related Posts
 
+- [pranks to pull at a sleepover](https://lifestyle.allwomenstalk.com/things-all-girls-should-do-at-sleepovers/)
 - [what to do when a girl says she is bored](https://lifestyle.allwomenstalk.com/things-all-girls-should-do-when-they-are-bored/)
-- [how to be a freelance event planner](https://money.allwomenstalk.com/how-to-become-a-freelance-party-planner/)
-- [be your own boss careers](https://money.allwomenstalk.com/how-to-quit-your-job-to-become-your-own-boss/)
-- [difference in girl and woman](https://lifestyle.allwomenstalk.com/differences-between-women-and-girls/)
 - [the woman you are](https://inspiration.allwomenstalk.com/how-to-become-the-woman-youve-always-wanted-to-be/)
 - [jacqueline carlyle](https://movies.allwomenstalk.com/quotes-from-the-bold-type-program-for-the-girls-still-figuring-things-out/)
-- [pranks to pull at a sleepover](https://lifestyle.allwomenstalk.com/things-all-girls-should-do-at-sleepovers/)
+- [difference in girl and woman](https://lifestyle.allwomenstalk.com/differences-between-women-and-girls/)
+- [be your own boss careers](https://money.allwomenstalk.com/how-to-quit-your-job-to-become-your-own-boss/)
+- [how to be successful woman](https://inspiration.allwomenstalk.com/the-secrets-of-successful-women/)
 - [princess pea](https://inspiration.allwomenstalk.com/how-to-behave-like-a-princess/)
 - [princess education](https://inspiration.allwomenstalk.com/lessons-to-learn-from-real-life-princesses/)
-- [how to be successful woman](https://inspiration.allwomenstalk.com/the-secrets-of-successful-women/)
+- [how to be a freelance event planner](https://money.allwomenstalk.com/how-to-become-a-freelance-party-planner/)
 - [Amazing Life Saving Clothing and Fashion Hacks Eve...](https://fashion.allwomenstalk.com/life-saving-clothing-and-fashion-hacks-every-girl-needs/)
 - [7 Lifesaving Styling Hacks for Curvy Girls Wanting...](https://fashion.allwomenstalk.com/styling-tips-for-curvy-girls/)
 

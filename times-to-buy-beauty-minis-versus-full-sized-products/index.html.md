@@ -51,15 +51,15 @@ Beauty minis are much better than they used to be. They're more than just sample
 ## Related Posts
 
 - [scarecrow makeup](https://makeup.allwomenstalk.com/amazing-works-of-special-effects-makeup-youve-gotta-see-to-believe/)
-- [sonia kashuk make up](https://makeup.allwomenstalk.com/best-drugstore-makeup-brands-on-the-market/)
-- [almay eyeshadow palette](https://makeup.allwomenstalk.com/tempting-products-from-almay-that-will-make-you-consider-buying-all-new-makeup/)
-- [janet bb](https://makeup.allwomenstalk.com/stunning-full-body-bb-creams-to-try-today/)
-- [all in 1 makeup](https://makeup.allwomenstalk.com/top-all-in-one-makeup-kits-to-save-time-and-money/)
-- [best drugstore eye shadows](https://makeup.allwomenstalk.com/best-drugstore-eye-makeup-products/)
 - [sephora goodie bag](https://beauty.allwomenstalk.com/sephora-gift-sets-to-put-on-your-lust-list/)
-- [best foundation for travel](https://makeup.allwomenstalk.com/makeup-items-to-leave-at-home-when-you-travel/)
+- [janet bb](https://makeup.allwomenstalk.com/stunning-full-body-bb-creams-to-try-today/)
 - [margaret rose powder compact](https://makeup.allwomenstalk.com/gorgeous-vintage-compacts-to-make-you-go-ooh/)
+- [all in 1 makeup](https://makeup.allwomenstalk.com/top-all-in-one-makeup-kits-to-save-time-and-money/)
+- [almay eyeshadow palette](https://makeup.allwomenstalk.com/tempting-products-from-almay-that-will-make-you-consider-buying-all-new-makeup/)
+- [best foundation for travel](https://makeup.allwomenstalk.com/makeup-items-to-leave-at-home-when-you-travel/)
+- [best drugstore eye shadows](https://makeup.allwomenstalk.com/best-drugstore-eye-makeup-products/)
 - [too faced french and fabulous](https://makeup.allwomenstalk.com/awesome-eye-shadow-palettes-for-you-to-love/)
+- [sonia kashuk make up](https://makeup.allwomenstalk.com/best-drugstore-makeup-brands-on-the-market/)
 - [7 Best Beauty Buys ...](https://allwomenstalk.com/7-best-beauty-buys/)
 - [9 High-end Beauty Products That Are Actually Worth...](https://beauty.allwomenstalk.com/high-end-beauty-products-that-are-actually-worth-the-price/)
 

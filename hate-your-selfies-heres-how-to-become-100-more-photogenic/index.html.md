@@ -42,16 +42,16 @@ These are 7 amazing ways to become more photogenic in your selfies. What are you
 
 ## Related Posts
 
-- [unclassy](https://love.allwomenstalk.com/unclassy-things-that-are-actually-attractive/)
-- [how to fix resting b face](https://beauty.allwomenstalk.com/how-to-make-your-resting-bitch-face-more-appealing/)
-- [charming personalities](https://inspiration.allwomenstalk.com/the-secrets-of-how-to-be-charming/)
-- [how to appear slimmer in photos](https://beauty.allwomenstalk.com/how-to-look-slimmer-in-photographs/)
+- [which part of your body are you not happy about](https://beauty.allwomenstalk.com/what-part-of-your-body-do-you-hate-here-is-how-you-change-your-outlook/)
 - [how to move gracefully](https://beauty.allwomenstalk.com/how-to-appear-as-graceful-as-a-ballerina/)
+- [how to fix resting b face](https://beauty.allwomenstalk.com/how-to-make-your-resting-bitch-face-more-appealing/)
 - [breakfast at tiffanys cat](https://movies.allwomenstalk.com/so-you-want-to-be-holly-golightly-heres-how/)
+- [how to naturally look prettier](https://beauty.allwomenstalk.com/how-to-look-prettier-in-only-one-minute/)
 - [i want to be prettier](https://beauty.allwomenstalk.com/how-to-feel-prettier-in-under-five-minutes/)
 - [mirror reflection quotes](https://beauty.allwomenstalk.com/how-to-be-happy-with-your-reflection/)
-- [how to naturally look prettier](https://beauty.allwomenstalk.com/how-to-look-prettier-in-only-one-minute/)
-- [which part of your body are you not happy about](https://beauty.allwomenstalk.com/what-part-of-your-body-do-you-hate-here-is-how-you-change-your-outlook/)
+- [charming personalities](https://inspiration.allwomenstalk.com/the-secrets-of-how-to-be-charming/)
+- [unclassy](https://love.allwomenstalk.com/unclassy-things-that-are-actually-attractive/)
+- [how to appear slimmer in photos](https://beauty.allwomenstalk.com/how-to-look-slimmer-in-photographs/)
 - [9 Wonderfully Effective Ways to Boost Your Self-Es...](https://lifestyle.allwomenstalk.com/wonderfully-effective-ways-to-boost-your-self-esteem/)
 - [13 Excellent Beauty Tips You Can Try to Boost Your...](https://beauty.allwomenstalk.com/excellent-beauty-tips-you-can-try-to-boost-your-self-confidence-in-24-hours/)
 

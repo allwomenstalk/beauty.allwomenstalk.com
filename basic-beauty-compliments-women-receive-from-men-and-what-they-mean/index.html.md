@@ -58,16 +58,16 @@ Now, what are the categories for men that women use? I’ll leave that to the fe
 
 ## Related Posts
 
-- [cool girl gif](https://love.allwomenstalk.com/reasons-why-men-like-bad-girls/)
-- [city guys](https://love.allwomenstalk.com/types-of-ex-boyfriends-as-defined-by-sex-and-the-citys-guys/)
 - [12 Ugly Habits of Men  ...](https://love.allwomenstalk.com/ugly-habits-of-men/)
-- [what to do before a date for a girl](https://love.allwomenstalk.com/things-men-think-about-before-the-first-date/)
-- [what guys look for in a woman](https://love.allwomenstalk.com/what-guys-honestly-look-for-in-girls/)
-- [which guy should i choose](https://love.allwomenstalk.com/how-to-choose-the-right-guy-when-dating-in-modern-times/)
-- [do guys mean what they say](https://love.allwomenstalk.com/things-guys-say-vs-what-they-actually-mean/)
+- [cool girl gif](https://love.allwomenstalk.com/reasons-why-men-like-bad-girls/)
 - [whats the difference between a man and a boy](https://lifestyle.allwomenstalk.com/differences-between-men-and-boys/)
-- [chick flicks](https://movies.allwomenstalk.com/top-reasons-why-some-guy-flicks-are-actually-chick-flicks-in-disguise/)
+- [what to do before a date for a girl](https://love.allwomenstalk.com/things-men-think-about-before-the-first-date/)
+- [do guys mean what they say](https://love.allwomenstalk.com/things-guys-say-vs-what-they-actually-mean/)
+- [what guys look for in a woman](https://love.allwomenstalk.com/what-guys-honestly-look-for-in-girls/)
 - [why does my bf call me mommy](https://love.allwomenstalk.com/red-flags-in-a-relationship-no-one-tells-you-about/)
+- [chick flicks](https://movies.allwomenstalk.com/top-reasons-why-some-guy-flicks-are-actually-chick-flicks-in-disguise/)
+- [city guys](https://love.allwomenstalk.com/types-of-ex-boyfriends-as-defined-by-sex-and-the-citys-guys/)
+- [which guy should i choose](https://love.allwomenstalk.com/how-to-choose-the-right-guy-when-dating-in-modern-times/)
 - [7 Fall Beauty Updates ...](https://allwomenstalk.com/7-fall-beauty-updates/)
 - [7 Things That Make You Beautiful ...](https://allwomenstalk.com/7-things-that-make-you-beautiful/)
 

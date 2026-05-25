@@ -56,16 +56,16 @@ What past beauty advice have you gotten that you think is silly today?
 
 ## Related Posts
 
-- [how to be more noticeable](https://beauty.allwomenstalk.com/beauty-tips-to-become-more-noticeable-by-boys/)
-- [college beauty essentials](https://beauty.allwomenstalk.com/brilliant-beauty-tips-for-college-students-everywhere/)
-- [what beauty treatments should i get regularly](https://beauty.allwomenstalk.com/how-often-should-you-do-home-beauty-treatments/)
-- [masking liner](https://skincare.allwomenstalk.com/why-multi-masking-is-the-new-beauty-buzz/)
 - [morning pampering](https://beauty.allwomenstalk.com/morning-beauty-habits-that-will-make-you-more-beautiful/)
-- [turn shower into spa](https://beauty.allwomenstalk.com/how-to-turn-your-shower-into-a-diy-spa/)
 - [weird skin care](https://skincare.allwomenstalk.com/weird-skincare-tips-that-actually-work/)
-- [prettygirls](https://beauty.allwomenstalk.com/household-items-you-should-include-in-your-beauty-routine/)
-- [paris riche le stylo smoky eye spark](https://beauty.allwomenstalk.com/heres-how-you-can-get-longer-lashes-using-only-natural-remedies/)
 - [makeup secrets](https://makeup.allwomenstalk.com/how-to-look-pretty-without-wearing-makeup/)
+- [what beauty treatments should i get regularly](https://beauty.allwomenstalk.com/how-often-should-you-do-home-beauty-treatments/)
+- [how to be more noticeable](https://beauty.allwomenstalk.com/beauty-tips-to-become-more-noticeable-by-boys/)
+- [turn shower into spa](https://beauty.allwomenstalk.com/how-to-turn-your-shower-into-a-diy-spa/)
+- [college beauty essentials](https://beauty.allwomenstalk.com/brilliant-beauty-tips-for-college-students-everywhere/)
+- [masking liner](https://skincare.allwomenstalk.com/why-multi-masking-is-the-new-beauty-buzz/)
+- [paris riche le stylo smoky eye spark](https://beauty.allwomenstalk.com/heres-how-you-can-get-longer-lashes-using-only-natural-remedies/)
+- [prettygirls](https://beauty.allwomenstalk.com/household-items-you-should-include-in-your-beauty-routine/)
 - [The Science of Beauty: What Influences Your Look ....](https://beauty.allwomenstalk.com/the-science-of-beauty-what-influences-your-look/)
 - [Dont Sabotage Your Own Skin: Little Known Beauty F...](https://skincare.allwomenstalk.com/dont-sabotage-your-own-skin-little-known-beauty-facts-you-must-read-now/)
 

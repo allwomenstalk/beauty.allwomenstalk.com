@@ -56,16 +56,16 @@ Are you looking for your red lipsticks yet? I know I am! I hope you enjoyed the 
 
 ## Related Posts
 
-- [simple makeup on dark skin](https://makeup.allwomenstalk.com/simple-makeup-tips-to-try-for-very-dark-skin/)
 - [face dots makeup](https://makeup.allwomenstalk.com/wonderful-eye-makeup-tricks-from-the-experts/)
 - [makeup model with gap in teeth](https://makeup.allwomenstalk.com/new-ideas-for-black-eyeliner-to-try-out-this-year/)
-- [eye flick makeup](https://makeup.allwomenstalk.com/hints-for-creating-the-perfect-eyeliner-flick/)
-- [can makeup make you age faster](https://makeup.allwomenstalk.com/signs-your-makeup-is-aging-you-and-what-to-do-to-fix-it/)
-- [best makeup for blonde hair green eyes](https://makeup.allwomenstalk.com/makeup-tips-for-blondes-to-give-you-that-bombshell-look/)
-- [girls who wear too much makeup](https://makeup.allwomenstalk.com/ways-to-have-the-too-much-makeup-talk-with-your-friends/)
 - [makeup dates](https://makeup.allwomenstalk.com/first-date-makeup-dos-and-donts-to-remember/)
 - [minerals in cosmetics](https://makeup.allwomenstalk.com/things-you-should-know-about-mineral-makeup/)
+- [best makeup for blonde hair green eyes](https://makeup.allwomenstalk.com/makeup-tips-for-blondes-to-give-you-that-bombshell-look/)
+- [eye flick makeup](https://makeup.allwomenstalk.com/hints-for-creating-the-perfect-eyeliner-flick/)
 - [riche stylo shadow blinged and](https://makeup.allwomenstalk.com/beautiful-eye-shadows-for-brown-eyes/)
+- [simple makeup on dark skin](https://makeup.allwomenstalk.com/simple-makeup-tips-to-try-for-very-dark-skin/)
+- [girls who wear too much makeup](https://makeup.allwomenstalk.com/ways-to-have-the-too-much-makeup-talk-with-your-friends/)
+- [can makeup make you age faster](https://makeup.allwomenstalk.com/signs-your-makeup-is-aging-you-and-what-to-do-to-fix-it/)
 - [7 Summer Makeup Tips for Oily Skin ...](https://makeup.allwomenstalk.com/summer-makeup-tips-for-oily-skin/)
 - [7 Secrets to Glowing Skin ...](https://beauty.allwomenstalk.com/secrets-to-glowing-skin/)
 

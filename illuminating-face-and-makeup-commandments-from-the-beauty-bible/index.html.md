@@ -44,16 +44,16 @@ So this is all that I learned on face and makeup from Allure’s Confessions of 
 
 ## Related Posts
 
-- [minerals in cosmetics](https://makeup.allwomenstalk.com/things-you-should-know-about-mineral-makeup/)
-- [makeup dates](https://makeup.allwomenstalk.com/first-date-makeup-dos-and-donts-to-remember/)
-- [girls who wear too much makeup](https://makeup.allwomenstalk.com/ways-to-have-the-too-much-makeup-talk-with-your-friends/)
 - [simple makeup on dark skin](https://makeup.allwomenstalk.com/simple-makeup-tips-to-try-for-very-dark-skin/)
+- [makeup dates](https://makeup.allwomenstalk.com/first-date-makeup-dos-and-donts-to-remember/)
+- [pale olive skin season](https://beauty.allwomenstalk.com/most-flattering-colors-for-olive-toned-skin/)
+- [makeup 99 cent store](https://makeup.allwomenstalk.com/stellar-tips-for-buying-makeup-at-the-dollar-store/)
+- [minerals in cosmetics](https://makeup.allwomenstalk.com/things-you-should-know-about-mineral-makeup/)
 - [makeup model with gap in teeth](https://makeup.allwomenstalk.com/new-ideas-for-black-eyeliner-to-try-out-this-year/)
 - [face dots makeup](https://makeup.allwomenstalk.com/wonderful-eye-makeup-tricks-from-the-experts/)
 - [eye flick makeup](https://makeup.allwomenstalk.com/hints-for-creating-the-perfect-eyeliner-flick/)
-- [pale olive skin season](https://beauty.allwomenstalk.com/most-flattering-colors-for-olive-toned-skin/)
-- [makeup 99 cent store](https://makeup.allwomenstalk.com/stellar-tips-for-buying-makeup-at-the-dollar-store/)
 - [how to make face thinner](https://makeup.allwomenstalk.com/ways-to-make-your-face-look-thinner-using-make-up/)
+- [girls who wear too much makeup](https://makeup.allwomenstalk.com/ways-to-have-the-too-much-makeup-talk-with-your-friends/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 

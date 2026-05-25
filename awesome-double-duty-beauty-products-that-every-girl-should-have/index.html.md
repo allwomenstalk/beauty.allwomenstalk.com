@@ -56,16 +56,16 @@ Cosmetics can get mighty costly. But with these 7 multi-purpose makeup products 
 
 ## Related Posts
 
-- [best makeup brands for makeup artists](https://makeup.allwomenstalk.com/must-see-makeup-lines-by-makeup-artists/)
 - [list of beauty products every girl needs](https://beauty.allwomenstalk.com/brilliant-beauty-products-every-glamour-girl-needs/)
-- [best liquid powder foundation](https://beauty.allwomenstalk.com/best-liquid-foundations/)
-- [mac eyeshadow vanilla](https://makeup.allwomenstalk.com/must-have-mac-eyeshadows-to-have-in-your-collection/)
+- [best makeup brands for makeup artists](https://makeup.allwomenstalk.com/must-see-makeup-lines-by-makeup-artists/)
 - [must have make up tools](https://makeup.allwomenstalk.com/essential-beauty-tools-that-you-must-have-in-your-makeup-bag/)
-- [paris le stylo smoky eye shadow vegas](https://makeup.allwomenstalk.com/best-cream-eye-shadows-youll-love/)
-- [purple glam eye makeup](https://makeup.allwomenstalk.com/glam-eyeshadow-shades-to-try-this-winter/)
-- [most popular blush](https://makeup.allwomenstalk.com/best-blushes-to-have-in-your-makeup-bag/)
-- [amazing eyeshadow palettes](https://makeup.allwomenstalk.com/best-eye-shadow-palettes-you-will-love-wearing/)
+- [best liquid powder foundation](https://beauty.allwomenstalk.com/best-liquid-foundations/)
 - [top bronzers](https://beauty.allwomenstalk.com/best-bronzers-for-that-fabulous-sun-kissed-glow/)
+- [most popular blush](https://makeup.allwomenstalk.com/best-blushes-to-have-in-your-makeup-bag/)
+- [purple glam eye makeup](https://makeup.allwomenstalk.com/glam-eyeshadow-shades-to-try-this-winter/)
+- [mac eyeshadow vanilla](https://makeup.allwomenstalk.com/must-have-mac-eyeshadows-to-have-in-your-collection/)
+- [paris le stylo smoky eye shadow vegas](https://makeup.allwomenstalk.com/best-cream-eye-shadows-youll-love/)
+- [amazing eyeshadow palettes](https://makeup.allwomenstalk.com/best-eye-shadow-palettes-you-will-love-wearing/)
 - [7 Makeup Must-Haves for Teen Girls ...](https://allwomenstalk.com/7-makeup-must-haves-for-teen-girls/)
 - [8 Essential Beauty Products All Girls Should Own ....](https://allwomenstalk.com/8-essential-beauty-products-all-girls-should-own/)
 

@@ -46,16 +46,16 @@ _vitacost.com_
 
 ## Related Posts
 
-- [ideas to drink more water](https://health.allwomenstalk.com/ways-to-drink-more-water/)
-- [whole foods rescue remedy](https://health.allwomenstalk.com/bach-flower-remedies-groups-and-remedy-options/)
-- [juicing gerson therapy](https://health.allwomenstalk.com/principles-of-the-gerson-therapy-that-are-thought-to-heal-the-body-from-cancer/)
-- [pregnant women candle](https://parenting.allwomenstalk.com/remedies-for-morning-sickness/)
-- [ocean potion with lidocaine](https://skincare.allwomenstalk.com/sure-fire-ways-to-deal-with-sunburn/)
-- [does vinegar help sunburn](https://skincare.allwomenstalk.com/soothing-and-natural-ways-to-relieve-sunburn/)
-- [messenger bag hurts shoulder](https://bags.allwomenstalk.com/ways-to-reduce-neck-and-shoulder-pain-caused-by-a-heavy-handbag/)
 - [herbs for yeast overgrowth](https://health.allwomenstalk.com/magical-herbs-to-fight-yeast-in-the-body/)
+- [whole foods rescue remedy](https://health.allwomenstalk.com/bach-flower-remedies-groups-and-remedy-options/)
+- [does vinegar help sunburn](https://skincare.allwomenstalk.com/soothing-and-natural-ways-to-relieve-sunburn/)
 - [anti yeast foods](https://food.allwomenstalk.com/unique-foods-to-fight-off-candida-yeast-in-the-body-fast/)
 - [seaweed baths for weight loss](https://health.allwomenstalk.com/incredible-natural-ways-to-fight-cellulite/)
+- [messenger bag hurts shoulder](https://bags.allwomenstalk.com/ways-to-reduce-neck-and-shoulder-pain-caused-by-a-heavy-handbag/)
+- [pregnant women candle](https://parenting.allwomenstalk.com/remedies-for-morning-sickness/)
+- [juicing gerson therapy](https://health.allwomenstalk.com/principles-of-the-gerson-therapy-that-are-thought-to-heal-the-body-from-cancer/)
+- [ocean potion with lidocaine](https://skincare.allwomenstalk.com/sure-fire-ways-to-deal-with-sunburn/)
+- [ideas to drink more water](https://health.allwomenstalk.com/ways-to-drink-more-water/)
 - [7 Top Tips for Cleaning Your Teeth ...](https://health.allwomenstalk.com/top-tips-for-cleaning-your-teeth/)
 - [5 Simple Tips for Making Your Teeth Whiter ...](https://health.allwomenstalk.com/simple-tips-for-making-your-teeth-whiter/)
 

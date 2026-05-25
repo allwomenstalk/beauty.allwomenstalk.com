@@ -42,16 +42,16 @@ As you can see, there are many places to hunt for your favorite beauty products!
 
 ## Related Posts
 
-- [most popular false eyelashes](https://makeup.allwomenstalk.com/outrageous-pairs-of-false-lashes-to-try-for-fun/)
 - [lipstick queen black tie optional](https://makeup.allwomenstalk.com/jet-black-makeup-products-to-add-drama-to-your-look/)
-- [makeup collabs with movies](https://makeup.allwomenstalk.com/arty-makeup-collaborations/)
-- [fashion subscription boxes](https://fashion.allwomenstalk.com/fashion-and-beauty-subscription-boxes-to-get-delivered-to-your-door/)
-- [date night for him](https://beauty.allwomenstalk.com/date-night-beauty-essentials-that-will-blow-him-away/)
-- [define pristinely](https://makeup.allwomenstalk.com/pristinely-white-makeup-products-to-lighten-your-look/)
-- [goth alternative makeup](https://makeup.allwomenstalk.com/dark-beauty-products-for-a-gothic-makeup-look/)
 - [tarte amazonian clay brow mousse](https://beauty.allwomenstalk.com/clever-beauty-products-that-you-need-in-your-life/)
-- [beauty tools every woman needs](https://makeup.allwomenstalk.com/incredible-beauty-tools-you-should-own-for-flawless-makeup/)
 - [best rated makeup organizers](https://bags.allwomenstalk.com/adorable-cosmetics-bags/)
+- [goth alternative makeup](https://makeup.allwomenstalk.com/dark-beauty-products-for-a-gothic-makeup-look/)
+- [define pristinely](https://makeup.allwomenstalk.com/pristinely-white-makeup-products-to-lighten-your-look/)
+- [makeup collabs with movies](https://makeup.allwomenstalk.com/arty-makeup-collaborations/)
+- [date night for him](https://beauty.allwomenstalk.com/date-night-beauty-essentials-that-will-blow-him-away/)
+- [beauty tools every woman needs](https://makeup.allwomenstalk.com/incredible-beauty-tools-you-should-own-for-flawless-makeup/)
+- [most popular false eyelashes](https://makeup.allwomenstalk.com/outrageous-pairs-of-false-lashes-to-try-for-fun/)
+- [fashion subscription boxes](https://fashion.allwomenstalk.com/fashion-and-beauty-subscription-boxes-to-get-delivered-to-your-door/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 

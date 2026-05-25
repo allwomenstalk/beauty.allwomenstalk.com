@@ -74,16 +74,16 @@ If you’re considering eyelash extensions I hope this helped. Have you had eyel
 
 ## Related Posts
 
-- [beeswax eyebrow gel](https://beauty.allwomenstalk.com/how-to-tame-your-brows-without-plucking-them/)
 - [can you use baby oil to remove eye makeup](https://makeup.allwomenstalk.com/are-you-making-these-mistakes-when-removing-your-makeup/)
-- [spidery eyelashes](https://makeup.allwomenstalk.com/foolproof-ways-to-make-even-the-thinnest-eyelashes-pop/)
 - [lucky nose shape](https://makeup.allwomenstalk.com/tutorials-that-will-ramp-up-your-eyeliner-game/)
-- [5th grade makeup](https://makeup.allwomenstalk.com/five-minute-makeup-routines-every-busy-girl-will-love/)
 - [makeup for bug eyes](https://makeup.allwomenstalk.com/makeup-tricks-for-big-beautiful-doll-eyes/)
+- [5th grade makeup](https://makeup.allwomenstalk.com/five-minute-makeup-routines-every-busy-girl-will-love/)
 - [baddieonlytv](https://makeup.allwomenstalk.com/how-to-humidity-proof-your-make-up/)
-- [order of face makeup](https://makeup.allwomenstalk.com/make-sure-to-put-your-makeup-on-in-this-order/)
 - [paris riche stylo smoky shadow blinged](https://makeup.allwomenstalk.com/how-to-create-a-reverse-smokey-eye/)
 - [how to avoid makeup oxidation](https://makeup.allwomenstalk.com/tips-for-refreshing-your-makeup-during-the-day/)
+- [spidery eyelashes](https://makeup.allwomenstalk.com/foolproof-ways-to-make-even-the-thinnest-eyelashes-pop/)
+- [beeswax eyebrow gel](https://beauty.allwomenstalk.com/how-to-tame-your-brows-without-plucking-them/)
+- [order of face makeup](https://makeup.allwomenstalk.com/make-sure-to-put-your-makeup-on-in-this-order/)
 - [This Has to Be the Best Week Ever for Eyelashes .....](https://allwomenstalk.com/this-has-to-be-the-best-week-ever-for-eyelashes/)
 - [8 Quirky Eyelash Extensions ...](https://allwomenstalk.com/quirky-eyelash-extensions/)
 

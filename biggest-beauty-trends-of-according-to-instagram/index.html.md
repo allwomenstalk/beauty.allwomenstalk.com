@@ -56,16 +56,16 @@ Are you ready to embrace the new makeup trends that are set to blow up in the ne
 
 ## Related Posts
 
-- [anthony starr lip](https://beauty.allwomenstalk.com/the-rise-of-the-unicorn-trend-in-beauty-and-why-we-all-love-it/)
-- [2017 makeup](https://makeup.allwomenstalk.com/hottest-makeup-trends-for-springsummer-fresh-from-fashion-week/)
-- [mahogany salon](https://hair.allwomenstalk.com/trending-hair-colors-summer/)
-- [gothic trend](https://fashion.allwomenstalk.com/gothic-fashion-trends-making-a-comeback/)
-- [fashion trend 2017](https://fashion.allwomenstalk.com/hottest-fashion-trends-of-according-to-fashion-influencers/)
-- [fall 2017 fashion trends](https://fashion.allwomenstalk.com/fashion-trends-fall-2017/)
-- [2017 hair trends](https://hair.allwomenstalk.com/top-hairstyle-trends-summer-london/)
-- [coachella boho style](https://fashion.allwomenstalk.com/best-boho-fashion-looks-at-coachella/)
-- [fashion trends for 2017](https://fashion.allwomenstalk.com/worst-fashion-trends/)
 - [hair color magenta-red](https://hair.allwomenstalk.com/sangria-is-the-falls-hottest-hair-color/)
+- [fashion trends for 2017](https://fashion.allwomenstalk.com/worst-fashion-trends/)
+- [anthony starr lip](https://beauty.allwomenstalk.com/the-rise-of-the-unicorn-trend-in-beauty-and-why-we-all-love-it/)
+- [gothic trend](https://fashion.allwomenstalk.com/gothic-fashion-trends-making-a-comeback/)
+- [coachella boho style](https://fashion.allwomenstalk.com/best-boho-fashion-looks-at-coachella/)
+- [mahogany salon](https://hair.allwomenstalk.com/trending-hair-colors-summer/)
+- [fashion trend 2017](https://fashion.allwomenstalk.com/hottest-fashion-trends-of-according-to-fashion-influencers/)
+- [2017 makeup](https://makeup.allwomenstalk.com/hottest-makeup-trends-for-springsummer-fresh-from-fashion-week/)
+- [2017 hair trends](https://hair.allwomenstalk.com/top-hairstyle-trends-summer-london/)
+- [fall 2017 fashion trends](https://fashion.allwomenstalk.com/fashion-trends-fall-2017/)
 - [7 Best Beauty Blogs ...](https://allwomenstalk.com/7-best-beauty-blogs/)
 - [7 Great Beauty Blogs ...](https://allwomenstalk.com/7-great-beauty-blogs/)
 

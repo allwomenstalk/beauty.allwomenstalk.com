@@ -44,16 +44,16 @@ Sources: [makeupfornoobs.com](https://goo.gl/hN3WVX), [livestrong.com](https://w
 
 ## Related Posts
 
-- [lip gloss baby lips](https://makeup.allwomenstalk.com/the-best-lip-glosses-for-ladies-with-fair-skin/)
-- [loreal riche stylo smoky eye pearly pink](https://makeup.allwomenstalk.com/the-best-lipstick-shades-to-go-with-smokey-eyes/)
-- [lip color vs lipstick](https://makeup.allwomenstalk.com/is-lip-gloss-better-than-lipstick/)
-- [lip liner as lipstick](https://makeup.allwomenstalk.com/how-to-use-your-lip-liner-as-a-lipstick/)
-- [girl lips kiss photo](https://makeup.allwomenstalk.com/the-different-types-of-lip-products-all-ladies-should-own/)
-- [hot pink lipstick for dark skin](https://makeup.allwomenstalk.com/lipstick-colors-that-look-amazing-on-dark-skinned-women/)
 - [pale rose lipstick](https://makeup.allwomenstalk.com/perfect-lipstick-looks-to-totally-inspire-you/)
-- [which brand lipstick is best for lips](https://makeup.allwomenstalk.com/subtle-lipsticks-and-lip-balms-with-a-hint-of-color/)
-- [rihannas lips](https://makeup.allwomenstalk.com/shades-of-everything-rihannas-love-of-lipstick/)
+- [girl lips kiss photo](https://makeup.allwomenstalk.com/the-different-types-of-lip-products-all-ladies-should-own/)
+- [lip liner as lipstick](https://makeup.allwomenstalk.com/how-to-use-your-lip-liner-as-a-lipstick/)
+- [loreal riche stylo smoky eye pearly pink](https://makeup.allwomenstalk.com/the-best-lipstick-shades-to-go-with-smokey-eyes/)
+- [lip gloss baby lips](https://makeup.allwomenstalk.com/the-best-lip-glosses-for-ladies-with-fair-skin/)
+- [hot pink lipstick for dark skin](https://makeup.allwomenstalk.com/lipstick-colors-that-look-amazing-on-dark-skinned-women/)
 - [riche le smoky eye avant azure](https://makeup.allwomenstalk.com/the-new-matte-lipstick-line-that-wont-dry-out-your-lips/)
+- [rihannas lips](https://makeup.allwomenstalk.com/shades-of-everything-rihannas-love-of-lipstick/)
+- [lip color vs lipstick](https://makeup.allwomenstalk.com/is-lip-gloss-better-than-lipstick/)
+- [which brand lipstick is best for lips](https://makeup.allwomenstalk.com/subtle-lipsticks-and-lip-balms-with-a-hint-of-color/)
 - [7 Steps to Creating Perfect Red Lips ...](https://makeup.allwomenstalk.com/steps-to-creating-perfect-red-lips/)
 - [7 Tips for Perfect Nude Lips ...](https://makeup.allwomenstalk.com/tips-for-perfect-nude-lips/)
 

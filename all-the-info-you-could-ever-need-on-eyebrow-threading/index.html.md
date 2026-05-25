@@ -52,16 +52,16 @@ Are your eyebrows “on fleek”? How do you keep them neat?
 
 ## Related Posts
 
-- [learning how to make up](https://makeup.allwomenstalk.com/different-ways-to-learn-new-makeup-techniques/)
+- [shimmer makeup look](https://makeup.allwomenstalk.com/sparkly-makeup-looks-thatll-make-you-stand-out/)
+- [better brows](https://beauty.allwomenstalk.com/the-two-minute-guide-to-better-brows/)
 - [funky eyeliner](https://makeup.allwomenstalk.com/funky-eyeliner-colors-you-have-to-try/)
 - [it inspired makeup](https://makeup.allwomenstalk.com/beyonce-inspired-makeup-tutorials/)
 - [loreal le smoky eye timeless blue](https://makeup.allwomenstalk.com/ombre-makeup-tutorials-for-your-trendiest-looks/)
-- [loreal paris color riche le stylo smoky shadow vio...](https://makeup.allwomenstalk.com/the-new-makeup-trend-for-smokey-eye-lovers/)
-- [stylo eye bottomless](https://makeup.allwomenstalk.com/habits-of-women-with-great-eyelashes/)
-- [better brows](https://beauty.allwomenstalk.com/the-two-minute-guide-to-better-brows/)
-- [shimmer makeup look](https://makeup.allwomenstalk.com/sparkly-makeup-looks-thatll-make-you-stand-out/)
-- [best natural eyeliner](https://makeup.allwomenstalk.com/which-color-eyeliner-will-work-the-best-for-you/)
 - [what to use beauty blender for](https://makeup.allwomenstalk.com/how-to-use-a-beauty-blender-for-flawless-foundation/)
+- [loreal paris color riche le stylo smoky shadow vio...](https://makeup.allwomenstalk.com/the-new-makeup-trend-for-smokey-eye-lovers/)
+- [learning how to make up](https://makeup.allwomenstalk.com/different-ways-to-learn-new-makeup-techniques/)
+- [stylo eye bottomless](https://makeup.allwomenstalk.com/habits-of-women-with-great-eyelashes/)
+- [best natural eyeliner](https://makeup.allwomenstalk.com/which-color-eyeliner-will-work-the-best-for-you/)
 - [10 Reasons to Thread Your Eyebrows at Eyebrow Salo...](https://allwomenstalk.com/reasons-to-thread-your-eyebrows/)
 - [5 Eyebrow Stamp Tips Youve Got to Know for Brows o...](https://makeup.allwomenstalk.com/eyebrow-pencil-tips-youve-got-to-know/)
 

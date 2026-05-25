@@ -50,16 +50,16 @@ These sound like great reasons to put two pineapples in my shopping cart this we
 
 ## Related Posts
 
-- [can u eat too much yogurt](https://health.allwomenstalk.com/can-eating-yogurt-save-your-life/)
-- [benefits of chia seed oil for skin](https://beauty.allwomenstalk.com/what-are-the-beauty-benefits-of-chia-seeds/)
 - [components of apple cider vinegar](https://food.allwomenstalk.com/ways-to-eat-the-benefits-of-apple-cider-vinegar/)
-- [rich people lunch](https://food.allwomenstalk.com/this-is-why-even-rich-people-brown-bag-it/)
+- [benefits of chia seed oil for skin](https://beauty.allwomenstalk.com/what-are-the-beauty-benefits-of-chia-seeds/)
+- [is himalayan salt radioactive](https://health.allwomenstalk.com/heres-why-you-should-buy-himalayan-pink-salt-this-week/)
+- [coconut oil for frizzy hair](https://food.allwomenstalk.com/ways-that-cooking-with-coconut-oil-can-help-you/)
+- [can u eat too much yogurt](https://health.allwomenstalk.com/can-eating-yogurt-save-your-life/)
+- [what to eat with tuna steaks](https://food.allwomenstalk.com/this-is-why-you-should-eat-tuna-fish-regularly/)
 - [benefits of drinking a gallon of water](https://health.allwomenstalk.com/benefits-of-drinking-one-gallon-of-water-per-day/)
 - [how much protein in quinoa](https://food.allwomenstalk.com/this-is-why-everyone-is-eating-quinoa-and-you-should-too/)
-- [coconut oil for frizzy hair](https://food.allwomenstalk.com/ways-that-cooking-with-coconut-oil-can-help-you/)
 - [health benefits of dark beer](https://food.allwomenstalk.com/this-is-why-beer-is-actually-good-for-you/)
-- [is himalayan salt radioactive](https://health.allwomenstalk.com/heres-why-you-should-buy-himalayan-pink-salt-this-week/)
-- [what to eat with tuna steaks](https://food.allwomenstalk.com/this-is-why-you-should-eat-tuna-fish-regularly/)
+- [rich people lunch](https://food.allwomenstalk.com/this-is-why-even-rich-people-brown-bag-it/)
 - [Important Things to Incorporate in to Your Spring ...](https://beauty.allwomenstalk.com/important-things-to-incorporate-in-to-your-spring-beauty-regime/)
 - [Try Using Baby Powder in Your Beauty Routine ...](https://beauty.allwomenstalk.com/uses-for-baby-powder-in-your-beauty-routine/)
 

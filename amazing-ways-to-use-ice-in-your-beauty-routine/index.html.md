@@ -42,16 +42,16 @@ Did you know ice is this good at keeping you beautiful?
 
 ## Related Posts
 
-- [weird skin care](https://skincare.allwomenstalk.com/weird-skincare-tips-that-actually-work/)
-- [what beauty treatments should i get regularly](https://beauty.allwomenstalk.com/how-often-should-you-do-home-beauty-treatments/)
-- [riche le stylo smoky eye primped and previous](https://beauty.allwomenstalk.com/debunking-beauty-what-the-last-generation-got-wrong-about-it-all/)
-- [beauty tip](https://apps.allwomenstalk.com/beauty-tip-apps-thatll-help-you-achieve-the-looks-you-love/)
-- [morning pampering](https://beauty.allwomenstalk.com/morning-beauty-habits-that-will-make-you-more-beautiful/)
-- [college beauty essentials](https://beauty.allwomenstalk.com/brilliant-beauty-tips-for-college-students-everywhere/)
 - [cleopatra beauty secret](https://beauty.allwomenstalk.com/the-beauty-secrets-cleopatra-would-have-shared-with-you/)
+- [beauty tip](https://apps.allwomenstalk.com/beauty-tip-apps-thatll-help-you-achieve-the-looks-you-love/)
 - [scarlett johansson makeup](https://beauty.allwomenstalk.com/avengers-assemble-your-ensemble-beauty-tips-to-steal-from-scarlett-johansson/)
-- [turn shower into spa](https://beauty.allwomenstalk.com/how-to-turn-your-shower-into-a-diy-spa/)
+- [weird skin care](https://skincare.allwomenstalk.com/weird-skincare-tips-that-actually-work/)
 - [long lasting shave](https://beauty.allwomenstalk.com/smooth-is-sexy-a-girls-guide-to-getting-the-longest-lasting-shave-possible/)
+- [morning pampering](https://beauty.allwomenstalk.com/morning-beauty-habits-that-will-make-you-more-beautiful/)
+- [what beauty treatments should i get regularly](https://beauty.allwomenstalk.com/how-often-should-you-do-home-beauty-treatments/)
+- [turn shower into spa](https://beauty.allwomenstalk.com/how-to-turn-your-shower-into-a-diy-spa/)
+- [riche le stylo smoky eye primped and previous](https://beauty.allwomenstalk.com/debunking-beauty-what-the-last-generation-got-wrong-about-it-all/)
+- [college beauty essentials](https://beauty.allwomenstalk.com/brilliant-beauty-tips-for-college-students-everywhere/)
 - [7 Summer Beauty Tips ...](https://makeup.allwomenstalk.com/summer-beauty-tips-2/)
 - [7 Rejuvenating Beauty Tricks ...](https://beauty.allwomenstalk.com/rejuvenating-beauty-tricks/)
 

@@ -44,16 +44,16 @@ Do you think you focus too much on your body “problems”?
 
 ## Related Posts
 
-- [This Will Change Your Mind about Using Tampons ...](https://health.allwomenstalk.com/this-will-change-your-mind-about-using-tampons/)
-- [Everything You Ever Needed to Know about Protein ....](https://diet.allwomenstalk.com/everything-you-ever-needed-to-know-about-protein/)
-- [The 7 Biggest Health Questions from around the Wor...](https://health.allwomenstalk.com/the-biggest-health-questions-from-around-the-world/)
+- [Inventive New Ways Your Phone is Probably Wrecking...](https://health.allwomenstalk.com/inventive-new-ways-your-phone-is-probably-wrecking-your-health/)
 - [The inside Scoop on the Essential Elements Your Bo...](https://health.allwomenstalk.com/the-low-down-on-the-elements-your-body-needs/)
+- [Everything You Ever Needed to Know about Protein ....](https://diet.allwomenstalk.com/everything-you-ever-needed-to-know-about-protein/)
+- [unhealthy activities](https://health.allwomenstalk.com/unhealthy-activities-as-dangerous-as-smoking/)
 - [Myths about Breast Cancer...Debunked ...](https://health.allwomenstalk.com/myths-about-breast-cancer-debunked/)
-- [Things You Should Know about Female Viagra ...](https://health.allwomenstalk.com/things-you-should-know-about-female-viagra/)
+- [This Will Change Your Mind about Using Tampons ...](https://health.allwomenstalk.com/this-will-change-your-mind-about-using-tampons/)
 - [7 Things You do on the Daily That Are Hurting Your...](https://health.allwomenstalk.com/things-you-do-on-the-daily-that-are-hurting-your-breasts/)
 - [site:health.allwomenstalk.com](https://health.allwomenstalk.com/fixes-for-common-period-problems/)
-- [Inventive New Ways Your Phone is Probably Wrecking...](https://health.allwomenstalk.com/inventive-new-ways-your-phone-is-probably-wrecking-your-health/)
-- [unhealthy activities](https://health.allwomenstalk.com/unhealthy-activities-as-dangerous-as-smoking/)
+- [Things You Should Know about Female Viagra ...](https://health.allwomenstalk.com/things-you-should-know-about-female-viagra/)
+- [The 7 Biggest Health Questions from around the Wor...](https://health.allwomenstalk.com/the-biggest-health-questions-from-around-the-world/)
 - [7 Good Reasons Not to Be Ashamed of Mental Health ...](https://health.allwomenstalk.com/good-reasons-not-to-be-ashamed-of-mental-health-problems/)
 - [6 Health Issues Women May Not Be Aware of ...](https://allwomenstalk.com/health-issues-women-may-not-be-aware-of/)
 

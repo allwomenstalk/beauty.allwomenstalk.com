@@ -42,16 +42,16 @@ These 7 suggestions will help you to have a lovely and relaxing bath. What do yo
 
 ## Related Posts
 
-- [i feel high without being high](https://lifestyle.allwomenstalk.com/ways-to-feel-high-without-drugs-or-alcohol/)
-- [how to obsess over something](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-obsessing-over-things-you-want/)
 - [how to handle post traumatic stress disorder](https://health.allwomenstalk.com/ways-to-handle-post-traumatic-stress/)
-- [what to do when you are unemployed and depressed](https://money.allwomenstalk.com/best-ways-to-overcome-unemployment-depression/)
-- [simple steps that lead to less stress](https://inspiration.allwomenstalk.com/easy-steps-to-reduce-stress-in-your-life/)
-- [nice things to do for someone having a bad day](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-having-a-bad-day/)
-- [craft hobbies for anxiety](https://diy.allwomenstalk.com/art-therapy-projects-you-can-do-to-help-you-recover-from-your-mental-illness/)
+- [how to obsess over something](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-obsessing-over-things-you-want/)
 - [stop insulting me](https://inspiration.allwomenstalk.com/ways-to-stop-insulting-yourself-when-youre-upset/)
+- [nice things to do for someone having a bad day](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-having-a-bad-day/)
+- [i feel high without being high](https://lifestyle.allwomenstalk.com/ways-to-feel-high-without-drugs-or-alcohol/)
+- [simple steps that lead to less stress](https://inspiration.allwomenstalk.com/easy-steps-to-reduce-stress-in-your-life/)
 - [the mood cure supplement list](https://books.allwomenstalk.com/things-i-love-about-the-mood-cure-by-julia-ross/)
 - [is venting good for you](https://lifestyle.allwomenstalk.com/ways-venting-helps-when-youre-really-frustrated/)
+- [craft hobbies for anxiety](https://diy.allwomenstalk.com/art-therapy-projects-you-can-do-to-help-you-recover-from-your-mental-illness/)
+- [what to do when you are unemployed and depressed](https://money.allwomenstalk.com/best-ways-to-overcome-unemployment-depression/)
 - [7 Tips for Bathing Your New Baby ...](https://parenting.allwomenstalk.com/tips-for-bathing-your-new-baby/)
 - [17 Tips on Creating a Home Bath Spa ...](https://allwomenstalk.com/how-to-get-rid-of-stress-with-a-home-bath-spa/)
 

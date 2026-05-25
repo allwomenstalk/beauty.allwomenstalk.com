@@ -49,15 +49,15 @@ I had my 6 month check up at the end of July and my dentist was very impressed b
 ## Related Posts
 
 - [is homemade sweet tea good for you](https://food.allwomenstalk.com/southern-sweet-tea/)
-- [massage therapy benefits to health](https://health.allwomenstalk.com/health-benefits-of-massage-therapy/)
-- [benefits infrared sauna therapy](https://health.allwomenstalk.com/benefits-of-infrared-sauna-therapy/)
-- [kissing benefits](https://love.allwomenstalk.com/health-benefits-of-kissing/)
 - [a benefit to preparing and taking your own lunch t...](https://diet.allwomenstalk.com/benefits-of-packing-your-own-lunch/)
-- [is drinking lemon juice with salt bad for you](https://health.allwomenstalk.com/benefits-of-lemon-water-and-pink-himalayan-salt/)
 - [sweet tea benefits](https://food.allwomenstalk.com/benefits-of-iced-tea/)
-- [yarrow benefits for periods](https://health.allwomenstalk.com/the-health-benefits-of-yarrow/)
+- [is drinking lemon juice with salt bad for you](https://health.allwomenstalk.com/benefits-of-lemon-water-and-pink-himalayan-salt/)
 - [best water detox for weight loss](https://food.allwomenstalk.com/detox-water-recipes-2/)
+- [benefits infrared sauna therapy](https://health.allwomenstalk.com/benefits-of-infrared-sauna-therapy/)
 - [sweet health benefits of chocolate](https://diet.allwomenstalk.com/health-benefits-of-chocolate/)
+- [yarrow benefits for periods](https://health.allwomenstalk.com/the-health-benefits-of-yarrow/)
+- [massage therapy benefits to health](https://health.allwomenstalk.com/health-benefits-of-massage-therapy/)
+- [kissing benefits](https://love.allwomenstalk.com/health-benefits-of-kissing/)
 - [7 Top Tips for Cleaning Your Teeth ...](https://health.allwomenstalk.com/top-tips-for-cleaning-your-teeth/)
 - [5 Simple Tips for Making Your Teeth Whiter ...](https://health.allwomenstalk.com/simple-tips-for-making-your-teeth-whiter/)
 

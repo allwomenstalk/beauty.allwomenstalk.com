@@ -42,16 +42,16 @@ During the war years, cosmetics were scarce, so women had to be resourceful. Our
 
 ## Related Posts
 
-- [skincare infographics](https://beauty.allwomenstalk.com/helpful-beauty-infographics-to-pore-over/)
-- [uses of wax](https://beauty.allwomenstalk.com/uses-for-wax-in-the-beauty-industry/)
-- [splendid beauty salon](https://beauty.allwomenstalk.com/splendid-beauty-tips-for-redheads/)
 - [women with beautiful hair](https://beauty.allwomenstalk.com/beauty-tips-for-women-with-dark-hair/)
-- [superstar make up](https://beauty.allwomenstalk.com/top-beauty-tips-to-make-you-look-like-a-superstar/)
-- [aerosmith fashion](https://beauty.allwomenstalk.com/beauty-secrets-from-aerosmiths-steven-tyler/)
 - [marilyn monroe makeup quotes](https://beauty.allwomenstalk.com/inspiring-bits-of-beauty-advice-from-marilyn-monroe/)
-- [model with thick eyebrows cara](https://beauty.allwomenstalk.com/timeless-beauty-looks-thatll-always-be-in-style/)
+- [splendid beauty salon](https://beauty.allwomenstalk.com/splendid-beauty-tips-for-redheads/)
 - [eco friendly beauty tips](https://beauty.allwomenstalk.com/amazing-eco-friendly-beauty-tips/)
+- [superstar make up](https://beauty.allwomenstalk.com/top-beauty-tips-to-make-you-look-like-a-superstar/)
+- [skincare infographics](https://beauty.allwomenstalk.com/helpful-beauty-infographics-to-pore-over/)
+- [aerosmith fashion](https://beauty.allwomenstalk.com/beauty-secrets-from-aerosmiths-steven-tyler/)
 - [melissa mccarthy ginger](https://beauty.allwomenstalk.com/beauty-lessons-we-can-learn-from-melissa-mccarthy/)
+- [model with thick eyebrows cara](https://beauty.allwomenstalk.com/timeless-beauty-looks-thatll-always-be-in-style/)
+- [uses of wax](https://beauty.allwomenstalk.com/uses-for-wax-in-the-beauty-industry/)
 - [7 Cult-Classic Beauty Products ...](https://allwomenstalk.com/7-cult-classic-beauty-products/)
 - [7 Weird and Wonderful Beauty Treatments ...](https://allwomenstalk.com/7-weird-and-wonderful-beauty-treatments/)
 

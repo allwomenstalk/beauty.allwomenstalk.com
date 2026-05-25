@@ -188,16 +188,16 @@ What did you think, ladies? Do you have favorite makeup meme that wasn't on this
 
 ## Related Posts
 
-- [stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/sizzling-hot-makeup-trends-for-everyday-use/)
-- [face paint for fourth of july](https://makeup.allwomenstalk.com/wave-the-flag-red-white-and-blue-makeup-for-4th-july/)
-- [becca beach tint peach](https://makeup.allwomenstalk.com/what-makeup-should-you-wear-on-your-cheeks/)
-- [rihanna best makeup looks](https://makeup.allwomenstalk.com/celebrity-inspired-makeup-tutorials-you-need-to-try/)
-- [pastel blue eyeliner](https://makeup.allwomenstalk.com/this-is-how-to-get-pastel-eyeliner-just-right/)
-- [paris color riche le stylo shadow bottomless java](https://makeup.allwomenstalk.com/how-you-should-apply-shadow-based-on-your-eye-shape/)
-- [bad makeup vs good makeup](https://makeup.allwomenstalk.com/differences-between-a-good-makeup-day-and-a-bad-makeup-day/)
 - [what color eye makeup for brown eyes](https://makeup.allwomenstalk.com/what-type-of-smokey-eye-works-best-for-your-eye-color/)
 - [hashtag make up](https://makeup.allwomenstalk.com/lets-end-makeup-shaming-with-the-thepowerofmakeup-hashtag/)
+- [rihanna best makeup looks](https://makeup.allwomenstalk.com/celebrity-inspired-makeup-tutorials-you-need-to-try/)
+- [paris color riche le stylo shadow bottomless java](https://makeup.allwomenstalk.com/how-you-should-apply-shadow-based-on-your-eye-shape/)
+- [stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/sizzling-hot-makeup-trends-for-everyday-use/)
+- [becca beach tint peach](https://makeup.allwomenstalk.com/what-makeup-should-you-wear-on-your-cheeks/)
+- [pastel blue eyeliner](https://makeup.allwomenstalk.com/this-is-how-to-get-pastel-eyeliner-just-right/)
+- [bad makeup vs good makeup](https://makeup.allwomenstalk.com/differences-between-a-good-makeup-day-and-a-bad-makeup-day/)
 - [what color to wear with green eyes](https://makeup.allwomenstalk.com/the-best-make-up-tips-for-green-eyed-girls/)
+- [face paint for fourth of july](https://makeup.allwomenstalk.com/wave-the-flag-red-white-and-blue-makeup-for-4th-july/)
 - [Beauty Tips from a Regular Girls Makeup Bag ...](https://allwomenstalk.com/beauty-tips-from-a-regular-girls-makeup-bag/)
 - [13 Note-Worthy Makeup Application Tips Everyone Sh...](https://makeup.allwomenstalk.com/note-worthy-makeup-application-tips-everyone-should-be-aware-of/)
 

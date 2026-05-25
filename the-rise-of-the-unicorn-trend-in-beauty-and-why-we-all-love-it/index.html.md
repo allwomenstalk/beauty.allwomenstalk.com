@@ -125,16 +125,16 @@ BioBelle creates a holographic unicorn face mask;; Starbucks creates the unicorn
 
 ## Related Posts
 
-- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
+- [hair color magenta-red](https://hair.allwomenstalk.com/sangria-is-the-falls-hottest-hair-color/)
+- [gothic trend](https://fashion.allwomenstalk.com/gothic-fashion-trends-making-a-comeback/)
+- [christmas pinapple](https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/)
 - [beauty trends 2018](https://beauty.allwomenstalk.com/hottest-clean-beauty-trends-in/)
+- [fall 2017 fashion trends](https://fashion.allwomenstalk.com/fashion-trends-fall-2017/)
+- [athleisure trends 2018](https://fashion.allwomenstalk.com/top-fashion-trends-for/)
+- [2017 hair trends](https://hair.allwomenstalk.com/top-hairstyle-trends-summer-london/)
+- [mahogany salon](https://hair.allwomenstalk.com/trending-hair-colors-summer/)
 - [fashion trends for 2017](https://fashion.allwomenstalk.com/worst-fashion-trends/)
 - [2017 makeup trends](https://makeup.allwomenstalk.com/hot-makeup-trends-for-fall/)
-- [christmas pinapple](https://diy.allwomenstalk.com/pineapple-christmas-trees-the-most-unexpected-trend-of/)
-- [mahogany salon](https://hair.allwomenstalk.com/trending-hair-colors-summer/)
-- [fall 2017 fashion trends](https://fashion.allwomenstalk.com/fashion-trends-fall-2017/)
-- [gothic trend](https://fashion.allwomenstalk.com/gothic-fashion-trends-making-a-comeback/)
-- [2017 hair trends](https://hair.allwomenstalk.com/top-hairstyle-trends-summer-london/)
-- [hair color magenta-red](https://hair.allwomenstalk.com/sangria-is-the-falls-hottest-hair-color/)
 - [The Weekend Beauty Read ...](https://allwomenstalk.com/the-weekend-beauty-read/)
 - [The Weekend Beauty Read ...](https://allwomenstalk.com/the-weekend-beauty-read-2/)
 

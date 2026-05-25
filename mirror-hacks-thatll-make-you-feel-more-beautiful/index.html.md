@@ -74,16 +74,16 @@ You're beautiful just the way you are! Don't let the mirror tell you differently
 
 ## Related Posts
 
+- [tattoo for confidence](https://beauty.allwomenstalk.com/these-confidence-boosting-tattoos-will-make-you-feel-amazing/)
+- [how to make yourself prettier](https://beauty.allwomenstalk.com/do-these-small-things-and-feel-prettier-in-an-hour/)
+- [how to boost confidence quickly](https://inspiration.allwomenstalk.com/boost-your-confidence-with-these-quick-tricks/)
+- [how to make selfies look better](https://beauty.allwomenstalk.com/little-tweaks-to-make-your-selfies-look-more-natural/)
+- [how to look not ugly](https://beauty.allwomenstalk.com/things-that-can-fool-you-into-feeling-ugly/)
 - [things that make you look more attractive](https://beauty.allwomenstalk.com/teeny-tiny-things-thatll-make-you-seem-more-attractive/)
 - [how to look like you have your life together](https://funny.allwomenstalk.com/ways-to-look-like-you-have-your-life-together/)
-- [how to look not ugly](https://beauty.allwomenstalk.com/things-that-can-fool-you-into-feeling-ugly/)
-- [ready for my close up foundation](https://skincare.allwomenstalk.com/tips-to-get-your-skin-ready-for-a-sexy-close-up/)
-- [tattoo for confidence](https://beauty.allwomenstalk.com/these-confidence-boosting-tattoos-will-make-you-feel-amazing/)
-- [how to make selfies look better](https://beauty.allwomenstalk.com/little-tweaks-to-make-your-selfies-look-more-natural/)
 - [perky ones](https://beauty.allwomenstalk.com/how-to-get-perky-boobs-sans-surgery/)
-- [how to boost confidence quickly](https://inspiration.allwomenstalk.com/boost-your-confidence-with-these-quick-tricks/)
-- [how to make yourself prettier](https://beauty.allwomenstalk.com/do-these-small-things-and-feel-prettier-in-an-hour/)
 - [revealing outfit ideas](https://fashion.allwomenstalk.com/tips-for-women-who-want-to-look-super-sexy-without-looking-sleazy/)
+- [ready for my close up foundation](https://skincare.allwomenstalk.com/tips-to-get-your-skin-ready-for-a-sexy-close-up/)
 - [9 Tips on How to Be More Fabulous Everyday ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-be-more-fabulous-everyday/)
 - [10 Prom Make up Tips ...](https://allwomenstalk.com/10-prom-make-up-tips/)
 

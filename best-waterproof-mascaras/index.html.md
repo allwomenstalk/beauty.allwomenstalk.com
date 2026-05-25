@@ -102,16 +102,16 @@ Some people shy away from waterproof mascaras because they can be difficult to t
 
 ## Related Posts
 
-- [color le smoky unforgettable lilac](https://makeup.allwomenstalk.com/luscious-lipsticks-for-valentines-day/)
+- [dark lipstick looks](https://makeup.allwomenstalk.com/essential-tips-on-pulling-off-dark-lipstick/)
 - [loreal paris color riche le stylo smoldering plum](https://makeup.allwomenstalk.com/luscious-lip-enhancers-thatll-transform-your-lips/)
+- [lipstick fail](https://makeup.allwomenstalk.com/fail-proof-tips-for-perfect-lipstick/)
+- [bigelow rose salve](https://beauty.allwomenstalk.com/top-best-lip-balms/)
 - [paris color riche le stylo infinite](https://makeup.allwomenstalk.com/reasons-to-use-lip-stain-instead-of-lipstick/)
+- [best felt tip eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners/)
 - [lipstick colours for tan skin](https://makeup.allwomenstalk.com/of-the-best-lipsticks-for-blondes/)
 - [lips fuller](https://makeup.allwomenstalk.com/ways-to-make-your-lips-look-fuller/)
-- [dark lipstick looks](https://makeup.allwomenstalk.com/essential-tips-on-pulling-off-dark-lipstick/)
-- [best felt tip eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners/)
-- [bigelow rose salve](https://beauty.allwomenstalk.com/top-best-lip-balms/)
 - [bold lip colors](https://makeup.allwomenstalk.com/bold-lip-colors-that-arent-for-the-faint-of-heart/)
-- [lipstick fail](https://makeup.allwomenstalk.com/fail-proof-tips-for-perfect-lipstick/)
+- [color le smoky unforgettable lilac](https://makeup.allwomenstalk.com/luscious-lipsticks-for-valentines-day/)
 - [8 Volumizing Mascaras ...](https://makeup.allwomenstalk.com/volumizing-mascaras/)
 - [7 Best Mascaras under 10.00 ...](https://makeup.allwomenstalk.com/best-mascaras-under-10-00/)
 

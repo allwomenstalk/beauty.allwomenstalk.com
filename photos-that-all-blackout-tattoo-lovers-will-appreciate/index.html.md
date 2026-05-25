@@ -82,16 +82,16 @@ These pictures prove that you don't need a clever tattoo idea in order to get in
 
 ## Related Posts
 
-- [cringy selfie](https://love.allwomenstalk.com/awkward-after-sex-selfies-that-should-never-have-been-posted/)
 - [couple selfie ideas](https://love.allwomenstalk.com/selfie-ideas-for-couples-who-have-been-together-forever/)
-- [why are athletes more attractive](https://celebs.allwomenstalk.com/eye-candy-the-hottest-male-athletes-on-instagram/)
-- [detroit instagram comedian](https://books.allwomenstalk.com/nerdy-instagram-accounts-for-book-lovers-to-follow/)
-- [fomo ice tea](https://lifestyle.allwomenstalk.com/these-types-of-instagram-posts-always-give-us-fomo/)
-- [nibbles from flavor of love instagram](https://diet.allwomenstalk.com/instagram-food-porn-thatll-push-you-to-eat-healthier/)
-- [viral yearbook photos](https://funny.allwomenstalk.com/you-have-to-see-why-these-yearbook-photos-went-viral/)
-- [gorgeous red heads](https://hair.allwomenstalk.com/instagram-inspo-for-girls-with-gorgeous-red-hair/)
-- [celestebarber instagram](https://funny.allwomenstalk.com/these-celeb-instagram-copycat-shots-are-hilarious/)
 - [ballet portraits](https://fitness.allwomenstalk.com/ballet-portraits-that-anyone-whos-danced-can-appreciate/)
+- [gorgeous red heads](https://hair.allwomenstalk.com/instagram-inspo-for-girls-with-gorgeous-red-hair/)
+- [why are athletes more attractive](https://celebs.allwomenstalk.com/eye-candy-the-hottest-male-athletes-on-instagram/)
+- [viral yearbook photos](https://funny.allwomenstalk.com/you-have-to-see-why-these-yearbook-photos-went-viral/)
+- [nibbles from flavor of love instagram](https://diet.allwomenstalk.com/instagram-food-porn-thatll-push-you-to-eat-healthier/)
+- [fomo ice tea](https://lifestyle.allwomenstalk.com/these-types-of-instagram-posts-always-give-us-fomo/)
+- [cringy selfie](https://love.allwomenstalk.com/awkward-after-sex-selfies-that-should-never-have-been-posted/)
+- [celestebarber instagram](https://funny.allwomenstalk.com/these-celeb-instagram-copycat-shots-are-hilarious/)
+- [detroit instagram comedian](https://books.allwomenstalk.com/nerdy-instagram-accounts-for-book-lovers-to-follow/)
 - [7 Cool Celebrity Tattoos ...](https://allwomenstalk.com/7-cool-celebrity-tattoos/)
 - [7 Popular Tattooed Body Parts ...](https://allwomenstalk.com/7-popular-tattooed-body-parts/)
 

@@ -60,16 +60,16 @@ Enlist the help of these gym-friendly beauty products to help you look and feel 
 
 ## Related Posts
 
-- [whimsy makeup kit](https://makeup.allwomenstalk.com/whimsical-themed-beauty-products-youve-got-to-see/)
-- [gluten-free beauty products](https://makeup.allwomenstalk.com/glorious-gluten-free-cosmetics-companies/)
-- [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
-- [caveman makeup ideas](https://makeup.allwomenstalk.com/makeup-products-to-avoid-this-year/)
 - [beauty essentials list](https://beauty.allwomenstalk.com/beauty-essentials-for-clubbing/)
-- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
-- [organic drugstore makeup](https://makeup.allwomenstalk.com/pros-cons-of-drugstore-makeup/)
 - [best chrome eyeshadow](https://makeup.allwomenstalk.com/amazing-metallic-eye-shadows/)
 - [neutrogena complaints](https://makeup.allwomenstalk.com/reasons-i-love-neutrogena-makeup/)
+- [different makeup brushes](https://makeup.allwomenstalk.com/makeup-brushes-and-tools-finally-explained/)
+- [best and cheap eyeshadow palette](https://makeup.allwomenstalk.com/best-budget-friendly-makeup-palettes/)
+- [organic drugstore makeup](https://makeup.allwomenstalk.com/pros-cons-of-drugstore-makeup/)
+- [caveman makeup ideas](https://makeup.allwomenstalk.com/makeup-products-to-avoid-this-year/)
+- [whimsy makeup kit](https://makeup.allwomenstalk.com/whimsical-themed-beauty-products-youve-got-to-see/)
 - [good makeup bags](https://makeup.allwomenstalk.com/best-makeup-bags-to-glam-up-your-beauty-cabinet/)
+- [gluten-free beauty products](https://makeup.allwomenstalk.com/glorious-gluten-free-cosmetics-companies/)
 - [8 Best Skincare Products ...](https://skincare.allwomenstalk.com/best-skincare-products/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 

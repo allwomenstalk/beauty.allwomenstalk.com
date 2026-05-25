@@ -44,14 +44,14 @@ Stereotyping is something that comes natural to a lot of people. However, just l
 
 - [models beauty secrets](https://beauty.allwomenstalk.com/beauty-secrets-of-models-that-you-need-to-try/)
 - [iluvsarahii teeth](https://beauty.allwomenstalk.com/budget-beauty-tips-you-need-in-your-life/)
-- [best beauty deals](https://beauty.allwomenstalk.com/ways-to-find-the-best-beauty-deals/)
+- [beauty cocktail](https://food.allwomenstalk.com/ingredients-you-need-to-make-a-beauty-cocktail/)
+- [babes natural](https://beauty.allwomenstalk.com/natural-beauty-fixes-for-babes-on-a-budget/)
 - [natural vintage makeup look](https://beauty.allwomenstalk.com/vintage-beauty-tricks-used-back-in-the-day-that-we-should-use-more-often/)
 - [laundry perfumes betterstyle](https://beauty.allwomenstalk.com/beauty-tips-for-big-events-for-a-gorgeous-confident-you/)
-- [how to improve natural beauty](https://beauty.allwomenstalk.com/ways-to-achieve-natural-beauty/)
-- [beauty cocktail](https://food.allwomenstalk.com/ingredients-you-need-to-make-a-beauty-cocktail/)
 - [loreal paris color riche le stylo silver couture](https://beauty.allwomenstalk.com/bad-beauty-habits-that-sabotage-your-beauty-routine/)
-- [babes natural](https://beauty.allwomenstalk.com/natural-beauty-fixes-for-babes-on-a-budget/)
 - [downton abbey makeup](https://beauty.allwomenstalk.com/downton-abbey-beauty-tips-we-can-all-try/)
+- [best beauty deals](https://beauty.allwomenstalk.com/ways-to-find-the-best-beauty-deals/)
+- [how to improve natural beauty](https://beauty.allwomenstalk.com/ways-to-achieve-natural-beauty/)
 - [7 Summer Beauty Tips ...](https://makeup.allwomenstalk.com/summer-beauty-tips-2/)
 - [17 Charmingly Delightful Beauty Techniques from Al...](https://beauty.allwomenstalk.com/charmingly-delightful-beauty-techniques-from-all-over-the-world/)
 

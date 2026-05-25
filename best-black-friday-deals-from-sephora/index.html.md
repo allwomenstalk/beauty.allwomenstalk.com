@@ -65,15 +65,15 @@ Don't forget to set a reminder this Friday. Happy shopping!
 ## Related Posts
 
 - [The Best Beauty Brands on Instagram 2018 ...](https://beauty.allwomenstalk.com/the-best-beauty-brands-on-instagram/)
-- [top 5 best concealers](https://makeup.allwomenstalk.com/best-concealers-for-all-budgets/)
-- [10 Mind-blowing Beauty Products to Try in 2018 ...](https://beauty.allwomenstalk.com/new-beauty-products-you-must-try/)
-- [must have eyeshadow palettes](https://beauty.allwomenstalk.com/must-have-eyeshadow-palettes-for-spring/)
-- [8 Best Beauty Essentials for Summer 2018 ...](https://beauty.allwomenstalk.com/beauty-essentials-for-summer/)
-- [5 Beauty Companies Owned by Black Women ...](https://beauty.allwomenstalk.com/beauty-companies-owned-by-black-women/)
-- [Top 4 beauty products to invest in this Christmas ...](https://allwomenstalk.com/top-beauty-products-to-invest-in-this-christmas/)
-- [Selling Beauty Products on Amazon 5 Reasons PAYS I...](https://allwomenstalk.com/amazon-sellers-pays-insurance/)
-- [New Cannabis Oil Infused Mascara on the Market ...](https://makeup.allwomenstalk.com/milk-makeup-introduce-cannabis-oil-infused-mascara/)
 - [Best Holiday Beauty Gifts under 50 ...](https://beauty.allwomenstalk.com/best-holiday-beauty-gifts-under-50/)
+- [8 Best Beauty Essentials for Summer 2018 ...](https://beauty.allwomenstalk.com/beauty-essentials-for-summer/)
+- [10 Mind-blowing Beauty Products to Try in 2018 ...](https://beauty.allwomenstalk.com/new-beauty-products-you-must-try/)
+- [5 Beauty Companies Owned by Black Women ...](https://beauty.allwomenstalk.com/beauty-companies-owned-by-black-women/)
+- [top 5 best concealers](https://makeup.allwomenstalk.com/best-concealers-for-all-budgets/)
+- [Selling Beauty Products on Amazon 5 Reasons PAYS I...](https://allwomenstalk.com/amazon-sellers-pays-insurance/)
+- [Top 4 beauty products to invest in this Christmas ...](https://allwomenstalk.com/top-beauty-products-to-invest-in-this-christmas/)
+- [New Cannabis Oil Infused Mascara on the Market ...](https://makeup.allwomenstalk.com/milk-makeup-introduce-cannabis-oil-infused-mascara/)
+- [must have eyeshadow palettes](https://beauty.allwomenstalk.com/must-have-eyeshadow-palettes-for-spring/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [Exclusive to Sephora ...](https://allwomenstalk.com/exclusive-to-sephora-2/)
 

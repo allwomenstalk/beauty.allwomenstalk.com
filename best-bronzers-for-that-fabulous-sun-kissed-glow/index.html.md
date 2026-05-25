@@ -102,16 +102,16 @@ Do you have a favorite bronzer? Tell me what you look for when you’re in need 
 
 ## Related Posts
 
-- [paris riche le stylo eye shadow bottomless](https://makeup.allwomenstalk.com/of-my-favorite-drugstore-makeup-products-for-around-five-dollars/)
-- [drugstore makeup guide](https://makeup.allwomenstalk.com/drugstore-makeup-products-you-should-definitely-pass-on/)
 - [mac eyeshadow vanilla](https://makeup.allwomenstalk.com/must-have-mac-eyeshadows-to-have-in-your-collection/)
-- [best smudge proof gel eyeliner](https://makeup.allwomenstalk.com/best-gel-eyeliners-to-try/)
 - [amazing eyeshadow palettes](https://makeup.allwomenstalk.com/best-eye-shadow-palettes-you-will-love-wearing/)
-- [estee lauder color astonishing lipstick](https://makeup.allwomenstalk.com/amazing-makeup-products-from-estee-lauder/)
-- [loreal paris riche stylo eye shadow primped](https://makeup.allwomenstalk.com/must-haves-for-new-makeup-users/)
 - [best liquid powder foundation](https://beauty.allwomenstalk.com/best-liquid-foundations/)
-- [is laura geller makeup toxic](https://makeup.allwomenstalk.com/best-powder-foundations/)
+- [best smudge proof gel eyeliner](https://makeup.allwomenstalk.com/best-gel-eyeliners-to-try/)
+- [loreal paris riche stylo eye shadow primped](https://makeup.allwomenstalk.com/must-haves-for-new-makeup-users/)
 - [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-staples-every-girl-should-own/)
+- [drugstore makeup guide](https://makeup.allwomenstalk.com/drugstore-makeup-products-you-should-definitely-pass-on/)
+- [is laura geller makeup toxic](https://makeup.allwomenstalk.com/best-powder-foundations/)
+- [estee lauder color astonishing lipstick](https://makeup.allwomenstalk.com/amazing-makeup-products-from-estee-lauder/)
+- [paris riche le stylo eye shadow bottomless](https://makeup.allwomenstalk.com/of-my-favorite-drugstore-makeup-products-for-around-five-dollars/)
 - [7 Self-Tanning Lotions ...](https://skincare.allwomenstalk.com/self-tanning-lotions/)
 - [10 Bronzers under 20 ...](https://makeup.allwomenstalk.com/bronzers-under-20/)
 

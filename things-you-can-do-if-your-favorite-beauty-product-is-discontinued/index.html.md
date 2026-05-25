@@ -42,16 +42,16 @@ So don't lose all hope when your favorite beauty product is discontinued! There 
 
 ## Related Posts
 
-- [where to buy sephora makeup](https://makeup.allwomenstalk.com/forget-sephora-the-most-affordable-websites-for-buying-makeup/)
-- [lanzaroti](https://makeup.allwomenstalk.com/gross-products-in-your-make-up-that-you-never-knew-about/)
-- [body glitter 90s](https://beauty.allwomenstalk.com/90s-make-up-products-thatll-blow-your-mind-and-improve-your-beauty-routine/)
+- [organizer for girls](https://makeup.allwomenstalk.com/makeup-organizers-to-bring-order-to-your-stash/)
+- [thermasilk hair spray](https://beauty.allwomenstalk.com/discontinued-beauty-products-we-wish-would-come-back/)
 - [mascara primer drugstore](https://makeup.allwomenstalk.com/drugstore-mascaras-that-you-should-try/)
+- [moth face makeup](https://makeup.allwomenstalk.com/beauty-or-art-stunning-avant-garde-makeup/)
 - [shaina and kathy had a fight and havent talked for...](https://fashion.allwomenstalk.com/products-all-makeup-and-fashion-junkies-need-to-have/)
 - [best things to splurge on](https://money.allwomenstalk.com/indispensable-products-women-splurge-on-and-you-should-too/)
-- [moth face makeup](https://makeup.allwomenstalk.com/beauty-or-art-stunning-avant-garde-makeup/)
-- [organizer for girls](https://makeup.allwomenstalk.com/makeup-organizers-to-bring-order-to-your-stash/)
+- [lanzaroti](https://makeup.allwomenstalk.com/gross-products-in-your-make-up-that-you-never-knew-about/)
+- [where to buy sephora makeup](https://makeup.allwomenstalk.com/forget-sephora-the-most-affordable-websites-for-buying-makeup/)
 - [beauty products to try](https://beauty.allwomenstalk.com/classic-beauty-products-to-try-that-have-stood-the-test-of-time/)
-- [thermasilk hair spray](https://beauty.allwomenstalk.com/discontinued-beauty-products-we-wish-would-come-back/)
+- [body glitter 90s](https://beauty.allwomenstalk.com/90s-make-up-products-thatll-blow-your-mind-and-improve-your-beauty-routine/)
 - [7 New Make up Products Youll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 - [7 New Beauty Products Youll Love ...](https://beauty.allwomenstalk.com/new-beauty-products-youll-love/)
 

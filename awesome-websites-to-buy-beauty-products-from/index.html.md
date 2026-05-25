@@ -42,16 +42,16 @@ Do you buy beauty products online? I want to hear where you get your favorite st
 
 ## Related Posts
 
+- [whats illuminator for makeup](https://makeup.allwomenstalk.com/lovely-skin-illuminators-that-give-you-a-sexy-glow/)
 - [riche le eye shadow skirt](https://makeup.allwomenstalk.com/colourful-summer-eye-shadows/)
 - [chanel foundatiom](https://makeup.allwomenstalk.com/great-coverage-foundations-to-try/)
+- [teen makeup book](https://makeup.allwomenstalk.com/great-makeup-books/)
 - [loreal color stylo shadow and brilliant](https://makeup.allwomenstalk.com/bold-and-bright-beauty-products-to-try-now/)
 - [list of beauty tools](https://makeup.allwomenstalk.com/incredible-makeup-and-beauty-tools-finally-explained/)
-- [paris le stylo eye bottomless java](https://makeup.allwomenstalk.com/stunning-colored-mascaras/)
-- [whats illuminator for makeup](https://makeup.allwomenstalk.com/lovely-skin-illuminators-that-give-you-a-sexy-glow/)
-- [paris riche le smoky amber](https://makeup.allwomenstalk.com/must-have-eyeshadow-palettes/)
-- [garnier length and strength](https://beauty.allwomenstalk.com/cheap-beauty-products-to-check-out/)
-- [teen makeup book](https://makeup.allwomenstalk.com/great-makeup-books/)
 - [cruelty free drugstore makeup brands](https://beauty.allwomenstalk.com/reasons-to-love-drugstore-beauty-products/)
+- [paris le stylo eye bottomless java](https://makeup.allwomenstalk.com/stunning-colored-mascaras/)
+- [garnier length and strength](https://beauty.allwomenstalk.com/cheap-beauty-products-to-check-out/)
+- [paris riche le smoky amber](https://makeup.allwomenstalk.com/must-have-eyeshadow-palettes/)
 - [7 Best Beauty Blogs ...](https://allwomenstalk.com/7-best-beauty-blogs/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 

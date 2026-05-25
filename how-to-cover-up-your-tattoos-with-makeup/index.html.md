@@ -42,16 +42,16 @@ Unfortunately, there will be times when you'll need to keep your tattoos hidden.
 
 ## Related Posts
 
-- [katniss makeup artist](https://makeup.allwomenstalk.com/wait-until-you-see-these-hunger-games-inspired-makeup-tutorials/)
-- [sexiest makeup](https://makeup.allwomenstalk.com/sexy-makeup-infographics-to-get-you-ready-for-holidays/)
-- [what lip color goes with green eyeshadow](https://makeup.allwomenstalk.com/how-to-use-red-and-green-in-your-makeup-routine/)
-- [star wars schminke](https://fashion.allwomenstalk.com/sexy-star-wars-inspired-makeup-and-hair-tutorials/)
-- [christmas makeup](https://makeup.allwomenstalk.com/adorable-makeup-looks-youll-want-to-wear-on-christmas-day/)
-- [loreal la maximalist eyeshadow neon skirt](https://beauty.allwomenstalk.com/a-beginners-guide-to-tweezing-your-brows/)
-- [riche le stylo shadow blue spark](https://makeup.allwomenstalk.com/how-to-apply-eyeshadow-without-making-any-mistakes/)
-- [estee lalonde tattoo removal](https://makeup.allwomenstalk.com/make-these-new-years-resolutions-with-your-makeup/)
-- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/double-winged-eyeliner-looks-youll-want-to-copy/)
 - [stylo smoky eye blinged](https://lifestyle.allwomenstalk.com/how-to-create-a-cute-cut-crease-with-your-eye-shadow/)
+- [sexiest makeup](https://makeup.allwomenstalk.com/sexy-makeup-infographics-to-get-you-ready-for-holidays/)
+- [riche le stylo shadow blue spark](https://makeup.allwomenstalk.com/how-to-apply-eyeshadow-without-making-any-mistakes/)
+- [paris color riche stylo eye bottomless](https://makeup.allwomenstalk.com/double-winged-eyeliner-looks-youll-want-to-copy/)
+- [estee lalonde tattoo removal](https://makeup.allwomenstalk.com/make-these-new-years-resolutions-with-your-makeup/)
+- [katniss makeup artist](https://makeup.allwomenstalk.com/wait-until-you-see-these-hunger-games-inspired-makeup-tutorials/)
+- [christmas makeup](https://makeup.allwomenstalk.com/adorable-makeup-looks-youll-want-to-wear-on-christmas-day/)
+- [star wars schminke](https://fashion.allwomenstalk.com/sexy-star-wars-inspired-makeup-and-hair-tutorials/)
+- [loreal la maximalist eyeshadow neon skirt](https://beauty.allwomenstalk.com/a-beginners-guide-to-tweezing-your-brows/)
+- [what lip color goes with green eyeshadow](https://makeup.allwomenstalk.com/how-to-use-red-and-green-in-your-makeup-routine/)
 - [10 Tips on How to Apply Eye Makeup ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 - [Summerproof Your Makeup Look ...](https://allwomenstalk.com/summerproof-your-makeup-look/)
 

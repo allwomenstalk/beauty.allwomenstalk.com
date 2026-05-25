@@ -42,16 +42,16 @@ This list will vary depending on the event and what you’re doing, but eating a
 
 ## Related Posts
 
-- [7 Easy Steps for a Refreshing Technology Break ...](https://lifestyle.allwomenstalk.com/easy-steps-for-a-refreshing-technology-break/)
-- [7 Tips to Ensure Crowd Funding Success ...](https://money.allwomenstalk.com/tips-to-ensure-crowd-funding-success/)
-- [last minute marathon tips](https://running.allwomenstalk.com/last-minute-marathon-tips-to-help-you-have-your-best-race/)
+- [7 Extremely Useful Tips on How to Increase Your At...](https://money.allwomenstalk.com/extremely-useful-tips-on-how-to-increase-your-attention-span/)
 - [7 Quick Fashion Tips to Remember if Youre Short on...](https://fashion.allwomenstalk.com/quick-fashion-tips-to-remember-if-youre-short-on-time/)
-- [7 Tips for How to Survive an Open Plan Office ...](https://lifestyle.allwomenstalk.com/tips-for-how-to-survive-an-open-plan-office/)
-- [8 Points to Remember when Starting a Blog ...](https://inspiration.allwomenstalk.com/points-to-remember-when-starting-a-blog/)
 - [7 Very Useful Tips on How to Take Compliments ...](https://inspiration.allwomenstalk.com/very-useful-tips-on-how-to-take-compliments/)
 - [7 Tips on How to Ask for What You Want ...](https://money.allwomenstalk.com/tips-on-how-to-ask-for-what-you-want/)
+- [7 Easy Steps for a Refreshing Technology Break ...](https://lifestyle.allwomenstalk.com/easy-steps-for-a-refreshing-technology-break/)
 - [7 Super Training Tips for a Super Marathon ...](https://running.allwomenstalk.com/super-training-tips-for-a-super-marathon/)
-- [7 Extremely Useful Tips on How to Increase Your At...](https://money.allwomenstalk.com/extremely-useful-tips-on-how-to-increase-your-attention-span/)
+- [7 Tips for How to Survive an Open Plan Office ...](https://lifestyle.allwomenstalk.com/tips-for-how-to-survive-an-open-plan-office/)
+- [8 Points to Remember when Starting a Blog ...](https://inspiration.allwomenstalk.com/points-to-remember-when-starting-a-blog/)
+- [7 Tips to Ensure Crowd Funding Success ...](https://money.allwomenstalk.com/tips-to-ensure-crowd-funding-success/)
+- [last minute marathon tips](https://running.allwomenstalk.com/last-minute-marathon-tips-to-help-you-have-your-best-race/)
 - [7 Tips on Planning a Great Bridal Shower ...](https://wedding.allwomenstalk.com/tips-on-planning-a-great-bridal-shower/)
 - [7 Extremely Important Things to do 24 Hours before...](https://wedding.allwomenstalk.com/extremely-important-things-to-do-24-hours-before-your-highly-anticipated/)
 

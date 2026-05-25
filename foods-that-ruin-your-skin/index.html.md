@@ -94,14 +94,14 @@ I know eating healthy may not seem easy or fun if you’re new to the lifestyle,
 
 - [skin care myths](https://skincare.allwomenstalk.com/skin-care-myths-debunked/)
 - [best moisturiser for swimmers](https://skincare.allwomenstalk.com/fabulous-skin-and-hair-care-tips-for-swimmers/)
+- [can cocoa powder cause acne](https://food.allwomenstalk.com/foods-that-naturally-prevent-and-treat-acne/)
 - [peanuts acne](https://food.allwomenstalk.com/seemingly-healthy-foods-that-can-cause-acne-and-bad-skin/)
 - [cortisone cream razor bumps](https://skincare.allwomenstalk.com/honest-to-goodness-tips-on-preventing-and-treating-bikini-bumps/)
-- [can cocoa powder cause acne](https://food.allwomenstalk.com/foods-that-naturally-prevent-and-treat-acne/)
+- [neostrata toning solution level 2](https://skincare.allwomenstalk.com/possible-reasons-for-adult-acne-and-how-to-treat-it/)
 - [dry climate skin care](https://skincare.allwomenstalk.com/lifestyle-and-skin-care-tips-for-dry-climates/)
 - [in which food is zinc found](https://food.allwomenstalk.com/fabulous-sources-of-vitamins-and-minerals-to-keep-your-skin-in-great-shape/)
 - [suzy shuster instagram](https://skincare.allwomenstalk.com/dietary-solutions-to-reduce-acne-in-just-two-weeks/)
 - [perfect skin close up](https://food.allwomenstalk.com/ingredients-in-your-pantry-that-can-give-you-clear-skin/)
-- [neostrata toning solution level 2](https://skincare.allwomenstalk.com/possible-reasons-for-adult-acne-and-how-to-treat-it/)
 - [7 Ways to Get Perfect Skin ...](https://skincare.allwomenstalk.com/7-ways-to-get-perfect-skin/)
 - [8 Things That Are Good for Your Skin ...](https://skincare.allwomenstalk.com/things-that-are-good-for-your-skin/)
 

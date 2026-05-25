@@ -56,16 +56,16 @@ These were, in my opinion, 7 of the best and a bit expensive beauty products tha
 
 ## Related Posts
 
-- [loreal paris riche stylo eye shadow unforgettable ...](https://makeup.allwomenstalk.com/devastatingly-gorgeous-ways-to-use-falls-purple-makeup-palettes/)
-- [7 Bargain Shopping Sites to save Big on Fashion an...](https://money.allwomenstalk.com/bargain-shopping-sites-to-save-big-on-fashion-and-beauty-products/)
 - [9 Brand New Beauty Products to Add to Your Beauty ...](https://makeup.allwomenstalk.com/brand-new-beauty-products-to-add-to-your-beauty-wish-list/)
-- [7 Pink Beauty Products for Your Makeup Bag ...](https://makeup.allwomenstalk.com/pink-beauty-products-for-your-makeup-bag/)
-- [Top 11 Best Primers ...](https://beauty.allwomenstalk.com/top-best-primers/)
+- [loreal paris riche stylo eye shadow unforgettable ...](https://makeup.allwomenstalk.com/devastatingly-gorgeous-ways-to-use-falls-purple-makeup-palettes/)
 - [7 Gorgeous Items from the Catching Fire Makeup Col...](https://makeup.allwomenstalk.com/gorgeous-items-from-the-catching-fire-makeup-collection/)
+- [Top 11 Best Primers ...](https://beauty.allwomenstalk.com/top-best-primers/)
+- [7 Bargain Shopping Sites to save Big on Fashion an...](https://money.allwomenstalk.com/bargain-shopping-sites-to-save-big-on-fashion-and-beauty-products/)
+- [7 Pink Beauty Products for Your Makeup Bag ...](https://makeup.allwomenstalk.com/pink-beauty-products-for-your-makeup-bag/)
+- [which one is the best foundation](https://beauty.allwomenstalk.com/best-foundations/)
 - [loreal paris riche le stylo shadow pearly](https://beauty.allwomenstalk.com/beauty-products-to-buy-at-the-drugstore-to-save-money-but-look-great/)
 - [11 Essential Beauty Products for Winter That We Ca...](https://beauty.allwomenstalk.com/essential-beauty-products-for-winter-that-we-cant-live-without/)
 - [best dramatic lashes](https://beauty.allwomenstalk.com/of-the-best-false-lashes-for-dramatic-eyes/)
-- [which one is the best foundation](https://beauty.allwomenstalk.com/best-foundations/)
 - [5 Tried and Tested Beauty Products to Have on Your...](https://allwomenstalk.com/5-tried-and-tested-beauty-products-to-have-on-your-vanity/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 

@@ -65,16 +65,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/500092703/)
 
 ## Related Posts
 
-- [almay one coat thickening mascara](https://makeup.allwomenstalk.com/volumizing-mascaras/)
-- [7 Charmingly Useful Tips on How to Choose a Lipsti...](https://makeup.allwomenstalk.com/charmingly-useful-tips-on-how-to-choose-a-lipstick/)
 - [nivea a kiss of smoothness](https://love.allwomenstalk.com/nivea-kiss-of-a-lifetime-contest/)
-- [philosophy lip gloss discontinued](https://makeup.allwomenstalk.com/7-fruity-lip-glosses-from-philosophy/)
+- [7 Charmingly Useful Tips on How to Choose a Lipsti...](https://makeup.allwomenstalk.com/charmingly-useful-tips-on-how-to-choose-a-lipstick/)
 - [ivory tips protect your lips](https://beauty.allwomenstalk.com/tips-for-party-perfect-sexy-lips/)
+- [maybelline subway mascara](https://allwomenstalk.com/review-covergirl-lash-exact-mascara/)
 - [l oreal sublime glow reviews](https://allwomenstalk.com/review-loreal-sublime-glow/)
+- [how to make your lips bigger in 5 minutes](https://beauty.allwomenstalk.com/different-ways-to-make-your-lips-look-bigger/)
+- [almay one coat thickening mascara](https://makeup.allwomenstalk.com/volumizing-mascaras/)
+- [philosophy lip gloss discontinued](https://makeup.allwomenstalk.com/7-fruity-lip-glosses-from-philosophy/)
 - [nivea give-away](https://love.allwomenstalk.com/giveaway-contest-niveas-love-your-lips-share-your-kiss-2/)
 - [lash stylist mascara](https://allwomenstalk.com/review-maybelline-lash-stylist/)
-- [how to make your lips bigger in 5 minutes](https://beauty.allwomenstalk.com/different-ways-to-make-your-lips-look-bigger/)
-- [maybelline subway mascara](https://allwomenstalk.com/review-covergirl-lash-exact-mascara/)
 - [7 of My Favorite Lipstick Shades ...](https://makeup.allwomenstalk.com/7-of-my-favorite-lipstick-shades/)
 - [8 Sexy Red Lipsticks ...](https://makeup.allwomenstalk.com/sexy-red-lipsticks/)
 

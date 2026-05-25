@@ -56,16 +56,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/24760646)
 
 ## Related Posts
 
-- [handy items](https://beauty.allwomenstalk.com/handy-items-you-need-in-your-beauty-emergency-kit/)
-- [iluvsarahii teeth](https://beauty.allwomenstalk.com/ways-to-fix-beauty-mistakes/)
-- [how to have porcelain skin](https://beauty.allwomenstalk.com/beauty-tips-for-pale-skin/)
-- [tanfix cream](https://beauty.allwomenstalk.com/strange-yet-effective-beauty-rituals-to-consider/)
 - [how to steal makeup](https://makeup.allwomenstalk.com/beauty-tips-to-steal-from-the-runway/)
-- [how to look more femine](https://beauty.allwomenstalk.com/beauty-tips-for-tomboys/)
-- [diy beauty treatments](https://beauty.allwomenstalk.com/diy-beauty-treatments-to-try/)
 - [bad beauty](https://beauty.allwomenstalk.com/worst-beauty-tips-ever/)
-- [dr oz skin cream](https://beauty.allwomenstalk.com/brilliant-beauty-tips-i-learned-from-dr-oz/)
+- [diy beauty treatments](https://beauty.allwomenstalk.com/diy-beauty-treatments-to-try/)
+- [handy items](https://beauty.allwomenstalk.com/handy-items-you-need-in-your-beauty-emergency-kit/)
 - [beauty budget tips](https://beauty.allwomenstalk.com/brilliant-ways-to-build-a-beauty-budget/)
+- [iluvsarahii teeth](https://beauty.allwomenstalk.com/ways-to-fix-beauty-mistakes/)
+- [tanfix cream](https://beauty.allwomenstalk.com/strange-yet-effective-beauty-rituals-to-consider/)
+- [how to look more femine](https://beauty.allwomenstalk.com/beauty-tips-for-tomboys/)
+- [how to have porcelain skin](https://beauty.allwomenstalk.com/beauty-tips-for-pale-skin/)
+- [dr oz skin cream](https://beauty.allwomenstalk.com/brilliant-beauty-tips-i-learned-from-dr-oz/)
 - [10 Cool Things about Men ...](https://love.allwomenstalk.com/10-cool-things-about-men/)
 - [10 Things Men Wont Ever Understand about Women ...](https://allwomenstalk.com/10-things-men-wont-ever-understand-about-women/)
 

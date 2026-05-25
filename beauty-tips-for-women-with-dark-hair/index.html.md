@@ -56,15 +56,15 @@ Do you have any tips to add for women with dark hair? The grass is always greene
 
 ## Related Posts
 
-- [melissa mccarthy ginger](https://beauty.allwomenstalk.com/beauty-lessons-we-can-learn-from-melissa-mccarthy/)
-- [instagram](https://beauty.allwomenstalk.com/easy-steps-to-organize-your-beauty-products/)
-- [setting powder as dry shampoo](https://beauty.allwomenstalk.com/uses-for-baby-powder-in-your-beauty-routine/)
-- [ama beauty salon](https://beauty.allwomenstalk.com/gorgeous-ama-beauty-looks-that-you-should-steal/)
-- [canela breakout](https://beauty.allwomenstalk.com/ways-to-use-cinnamon-in-your-beauty-routine/)
 - [one minute makeup](https://beauty.allwomenstalk.com/super-simple-one-minute-beauty-makeovers/)
-- [skin care resolutions](https://skincare.allwomenstalk.com/skin-resolutions-to-make-for/)
-- [aerosmith fashion](https://beauty.allwomenstalk.com/beauty-secrets-from-aerosmiths-steven-tyler/)
+- [setting powder as dry shampoo](https://beauty.allwomenstalk.com/uses-for-baby-powder-in-your-beauty-routine/)
+- [canela breakout](https://beauty.allwomenstalk.com/ways-to-use-cinnamon-in-your-beauty-routine/)
 - [kate must](https://beauty.allwomenstalk.com/must-know-beauty-lessons-from-kate-middleton/)
+- [melissa mccarthy ginger](https://beauty.allwomenstalk.com/beauty-lessons-we-can-learn-from-melissa-mccarthy/)
+- [aerosmith fashion](https://beauty.allwomenstalk.com/beauty-secrets-from-aerosmiths-steven-tyler/)
+- [ama beauty salon](https://beauty.allwomenstalk.com/gorgeous-ama-beauty-looks-that-you-should-steal/)
+- [skin care resolutions](https://skincare.allwomenstalk.com/skin-resolutions-to-make-for/)
+- [instagram](https://beauty.allwomenstalk.com/easy-steps-to-organize-your-beauty-products/)
 - [books about cosmetology](https://books.allwomenstalk.com/must-read-books-for-a-career-in-the-beauty-industry/)
 - [7 Summer Beauty Tips ...](https://makeup.allwomenstalk.com/summer-beauty-tips-2/)
 - [7 Tips to Dye Your Hair Darker ...](https://hair.allwomenstalk.com/tips-to-dye-your-hair-darker/)

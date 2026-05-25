@@ -56,16 +56,16 @@ So now that you know the trends, you can go out and try them yourself, and this 
 
 ## Related Posts
 
-- [Country Music Awards 2014 Recap: Red Carpet Arriva...](https://fashion.allwomenstalk.com/country-music-awards-recap-red-carpet-arrivals-winners/)
-- [Relive the Best Red Carpet Fashion from the Hollyw...](https://fashion.allwomenstalk.com/relive-the-best-red-carpet-fashion-from-the-hollywood-film-awards/)
-- [MTV EMAs Recap: List of Winners  Red Carpet Fashio...](https://fashion.allwomenstalk.com/mtv-emas-recap-list-of-winners-red-carpet-fashion/)
-- [AmfAR LA Inspiration Gala 2014: Best Dressed Celeb...](https://fashion.allwomenstalk.com/amfar-la-inspiration-gala-best-dressed-celebs/)
-- [Love It or Hate It: Lena Dunhams Emmy Look ...](https://celebs.allwomenstalk.com/love-it-or-hate-it-lena-dunhams-emmy-look/)
 - [Throwing Shade on the Alleged Shade at the VMAs .....](https://celebs.allwomenstalk.com/throwing-shade-on-the-alleged-shade-at-the-vmas/)
 - [9 Celebrities with Great Red Carpet Style ...](https://celebs.allwomenstalk.com/celebrities-with-great-red-carpet-style/)
-- [7 Celebrities Wearing a Topknot - Who Wore It Best](https://hair.allwomenstalk.com/celebrities-wearing-a-topknot-who-wore-it-best/)
-- [Who is 2014s Sexiest Man Alive Find out Who People...](https://celebs.allwomenstalk.com/who-is-2014s-sexiest-man-alive-find-out-who-people-magazine-chose/)
 - [The Hunger Games: Mockingjay Premiere - What the S...](https://fashion.allwomenstalk.com/the-hunger-games-mockingjay-premiere-what-the-stars-wore-in-london/)
+- [Country Music Awards 2014 Recap: Red Carpet Arriva...](https://fashion.allwomenstalk.com/country-music-awards-recap-red-carpet-arrivals-winners/)
+- [Relive the Best Red Carpet Fashion from the Hollyw...](https://fashion.allwomenstalk.com/relive-the-best-red-carpet-fashion-from-the-hollywood-film-awards/)
+- [AmfAR LA Inspiration Gala 2014: Best Dressed Celeb...](https://fashion.allwomenstalk.com/amfar-la-inspiration-gala-best-dressed-celebs/)
+- [Who is 2014s Sexiest Man Alive Find out Who People...](https://celebs.allwomenstalk.com/who-is-2014s-sexiest-man-alive-find-out-who-people-magazine-chose/)
+- [Love It or Hate It: Lena Dunhams Emmy Look ...](https://celebs.allwomenstalk.com/love-it-or-hate-it-lena-dunhams-emmy-look/)
+- [7 Celebrities Wearing a Topknot - Who Wore It Best](https://hair.allwomenstalk.com/celebrities-wearing-a-topknot-who-wore-it-best/)
+- [MTV EMAs Recap: List of Winners  Red Carpet Fashio...](https://fashion.allwomenstalk.com/mtv-emas-recap-list-of-winners-red-carpet-fashion/)
 - [14 Most Beautiful Celebrity Eyes ...](https://allwomenstalk.com/14-most-beautiful-celebrity-eyes/)
 - [8 Celebrities with the Best Makeup ...](https://allwomenstalk.com/8-celebrities-with-the-best-makeup/)
 

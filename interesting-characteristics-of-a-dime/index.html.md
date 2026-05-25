@@ -42,16 +42,16 @@ Being a dime shouldn’t be your highest priority, but these tips are helpful in
 
 ## Related Posts
 
-- [interesting facts about washington](https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/)
 - [is quark lactose free](https://food.allwomenstalk.com/facts-about-quark-you-should-know/)
-- [how old is anna shaman king](https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/)
-- [medium physics facts](https://lifestyle.allwomenstalk.com/mind-bending-physics-facts/)
-- [fun facts about womens suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
-- [interesting facts rabbits](https://lifestyle.allwomenstalk.com/interesting-facts-you-may-not-know-about-rabbits/)
-- [facts about olives](https://food.allwomenstalk.com/facts-about-olives-for-olive-lovers/)
 - [sloth cool facts](https://lifestyle.allwomenstalk.com/informative-and-entertaining-fun-facts-about-sloths/)
-- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
+- [interesting facts rabbits](https://lifestyle.allwomenstalk.com/interesting-facts-you-may-not-know-about-rabbits/)
+- [fun facts about womens suffrage](https://lifestyle.allwomenstalk.com/interesting-facts-about-womens-suffrage-in-the-us/)
+- [how old is anna shaman king](https://movies.allwomenstalk.com/things-to-know-about-anna-and-the-king/)
 - [equine therapy facts](https://health.allwomenstalk.com/facts-about-equine-assisted-activities-and-therapies/)
+- [interesting facts about washington](https://travel.allwomenstalk.com/fun-facts-about-washington-d-c/)
+- [funny facts about wyoming](https://travel.allwomenstalk.com/unique-facts-about-living-in-wyoming/)
+- [facts about olives](https://food.allwomenstalk.com/facts-about-olives-for-olive-lovers/)
+- [medium physics facts](https://lifestyle.allwomenstalk.com/mind-bending-physics-facts/)
 - [7 Strange Animal Facts ...](https://allwomenstalk.com/7-strangest-animal-facts-you-did-not-know/)
 - [7 Awesome Facts ...](https://allwomenstalk.com/7-awesome-facts/)
 

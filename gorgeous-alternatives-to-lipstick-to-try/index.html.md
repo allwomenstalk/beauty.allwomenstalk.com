@@ -56,16 +56,16 @@ Although lipstick is a makeup must-have, there are lots of fun and flirty lipsti
 
 ## Related Posts
 
-- [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
-- [how to get chapstick out of hair](https://beauty.allwomenstalk.com/surprising-uses-for-lip-balm-other-than-on-your-lips/)
-- [luxury lip care](https://beauty.allwomenstalk.com/luxury-lip-balms-that-are-worth-the-money/)
-- [red lip look](https://beauty.allwomenstalk.com/dos-and-donts-of-wearing-red-lipstick-that-any-makeup-lover-should-know/)
-- [josie maran embrace it honey lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-for-summer-that-youre-gonna-love/)
-- [best lipstick for work](https://makeup.allwomenstalk.com/awesome-lipsticks-appropriate-for-work/)
 - [vegan lip balms](https://makeup.allwomenstalk.com/all-natural-organic-vegan-lip-balms-that-you-must-try/)
+- [best lipstick for work](https://makeup.allwomenstalk.com/awesome-lipsticks-appropriate-for-work/)
+- [josie maran embrace it honey lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-for-summer-that-youre-gonna-love/)
+- [red lip look](https://beauty.allwomenstalk.com/dos-and-donts-of-wearing-red-lipstick-that-any-makeup-lover-should-know/)
+- [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
 - [how to keep nail paint long lasting](https://makeup.allwomenstalk.com/ways-to-make-your-lipstick-last-longer/)
 - [mac derriere](https://makeup.allwomenstalk.com/gorgeous-autumn-lipsticks-to-wear-this-season/)
+- [luxury lip care](https://beauty.allwomenstalk.com/luxury-lip-balms-that-are-worth-the-money/)
 - [feed lips pure 09 shimmer](https://makeup.allwomenstalk.com/decadent-drugstore-lip-glosses-you-have-to-try/)
+- [how to get chapstick out of hair](https://beauty.allwomenstalk.com/surprising-uses-for-lip-balm-other-than-on-your-lips/)
 - [7 Hot Orange Lipsticks to Try out ...](https://beauty.allwomenstalk.com/hot-orange-lipsticks-to-try-out/)
 - [8 Best Lipsticks ...](https://allwomenstalk.com/best-lipstick-top-10/)
 

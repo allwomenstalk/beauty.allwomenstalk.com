@@ -42,16 +42,16 @@ These are 7 beauty products to keep at work. Which are a must for you? I’d loo
 
 ## Related Posts
 
-- [eye shadow palette face one color](https://makeup.allwomenstalk.com/eyeshadow-palettes-for-cool-skin-tones/)
-- [discontinue lipstick](https://beauty.allwomenstalk.com/things-you-can-do-if-your-favorite-beauty-product-is-discontinued/)
-- [mascara primer drugstore](https://makeup.allwomenstalk.com/drugstore-mascaras-that-you-should-try/)
 - [best things to splurge on](https://money.allwomenstalk.com/indispensable-products-women-splurge-on-and-you-should-too/)
-- [lanzaroti](https://makeup.allwomenstalk.com/gross-products-in-your-make-up-that-you-never-knew-about/)
-- [thermasilk hair spray](https://beauty.allwomenstalk.com/discontinued-beauty-products-we-wish-would-come-back/)
-- [shaina and kathy had a fight and havent talked for...](https://fashion.allwomenstalk.com/products-all-makeup-and-fashion-junkies-need-to-have/)
-- [body glitter 90s](https://beauty.allwomenstalk.com/90s-make-up-products-thatll-blow-your-mind-and-improve-your-beauty-routine/)
-- [organizer for girls](https://makeup.allwomenstalk.com/makeup-organizers-to-bring-order-to-your-stash/)
+- [discontinue lipstick](https://beauty.allwomenstalk.com/things-you-can-do-if-your-favorite-beauty-product-is-discontinued/)
 - [where to buy sephora makeup](https://makeup.allwomenstalk.com/forget-sephora-the-most-affordable-websites-for-buying-makeup/)
+- [organizer for girls](https://makeup.allwomenstalk.com/makeup-organizers-to-bring-order-to-your-stash/)
+- [lanzaroti](https://makeup.allwomenstalk.com/gross-products-in-your-make-up-that-you-never-knew-about/)
+- [eye shadow palette face one color](https://makeup.allwomenstalk.com/eyeshadow-palettes-for-cool-skin-tones/)
+- [body glitter 90s](https://beauty.allwomenstalk.com/90s-make-up-products-thatll-blow-your-mind-and-improve-your-beauty-routine/)
+- [shaina and kathy had a fight and havent talked for...](https://fashion.allwomenstalk.com/products-all-makeup-and-fashion-junkies-need-to-have/)
+- [thermasilk hair spray](https://beauty.allwomenstalk.com/discontinued-beauty-products-we-wish-would-come-back/)
+- [mascara primer drugstore](https://makeup.allwomenstalk.com/drugstore-mascaras-that-you-should-try/)
 - [7 Beauty Products to Take with You on a Plane ...](https://beauty.allwomenstalk.com/beauty-products-to-take-with-you-on-a-plane/)
 - [7 Must-Have Beauty Products to Keep at Work ...](https://beauty.allwomenstalk.com/must-have-beauty-products-to-keep-at-work/)
 

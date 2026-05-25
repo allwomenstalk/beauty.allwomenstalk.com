@@ -187,16 +187,16 @@ Give her the gift of a beach-holiday glow for just a ten-dollar bill (plus tax).
 
 ## Related Posts
 
-- [underrated makeup brands](https://makeup.allwomenstalk.com/wed-like-to-introduce-you-to-your-new-favorite-makeup-brands/)
-- [dark skin eyeshadow palette](https://makeup.allwomenstalk.com/makeup-products-every-dark-skinned-beauty-must-have/)
-- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
-- [amazing cosmetics concealer sephora](https://makeup.allwomenstalk.com/the-perfect-concealer-for-hiding-every-skin-sin/)
-- [blue makeup brands](https://makeup.allwomenstalk.com/try-the-blue-makeup-trend-with-these-products/)
-- [mascara star wars](https://makeup.allwomenstalk.com/may-the-makeup-be-with-you-covergirls-sexy-star-wars-line/)
-- [best products to look refreshed](https://beauty.allwomenstalk.com/products-for-refreshing-your-look-in-the-middle-of-the-day/)
 - [beauty tedt](https://skincare.allwomenstalk.com/these-are-the-only-skin-products-you-need-to-survive/)
-- [lash trend](https://makeup.allwomenstalk.com/rock-the-fluffy-lash-trend-with-these-sexy-falsies/)
 - [good waterproof makeup](https://makeup.allwomenstalk.com/waterproof-makeup-that-wont-rub-off-or-run/)
+- [underrated makeup brands](https://makeup.allwomenstalk.com/wed-like-to-introduce-you-to-your-new-favorite-makeup-brands/)
+- [blue makeup brands](https://makeup.allwomenstalk.com/try-the-blue-makeup-trend-with-these-products/)
+- [gwen stefani mascara reviews](https://makeup.allwomenstalk.com/sexy-new-urban-decay-products-made-by-gwen-stefani/)
+- [mascara star wars](https://makeup.allwomenstalk.com/may-the-makeup-be-with-you-covergirls-sexy-star-wars-line/)
+- [amazing cosmetics concealer sephora](https://makeup.allwomenstalk.com/the-perfect-concealer-for-hiding-every-skin-sin/)
+- [best products to look refreshed](https://beauty.allwomenstalk.com/products-for-refreshing-your-look-in-the-middle-of-the-day/)
+- [dark skin eyeshadow palette](https://makeup.allwomenstalk.com/makeup-products-every-dark-skinned-beauty-must-have/)
+- [lash trend](https://makeup.allwomenstalk.com/rock-the-fluffy-lash-trend-with-these-sexy-falsies/)
 - [7 Makeup Brush Sets under 50 ...](https://makeup.allwomenstalk.com/makeup-brush-sets-under-50/)
 - [11 Delightfully Fantastic Gift Ideas for the Beaut...](https://beauty.allwomenstalk.com/delightfully-fantastic-gift-ideas-for-the-beauty-junkie/)
 

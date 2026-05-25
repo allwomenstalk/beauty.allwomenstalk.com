@@ -42,16 +42,16 @@ If you are confused about how to apply different types of makeup, try going to a
 
 ## Related Posts
 
+- [shiny make up](https://makeup.allwomenstalk.com/tips-for-wearing-glitter-makeup/)
+- [how to do your makeup faster](https://makeup.allwomenstalk.com/tips-on-how-to-apply-makeup-faster/)
+- [makeup for skin tone](https://makeup.allwomenstalk.com/marvelous-makeup-tricks-for-uneven-skin-tone/)
+- [natural makeup celebrity](https://makeup.allwomenstalk.com/incredible-celebrity-makeup-looks-to-try/)
+- [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
 - [ways to do makeup](https://makeup.allwomenstalk.com/ways-to-go-barely-there-with-your-makeup/)
+- [loreal paris smoky eye shadow hollywood](https://makeup.allwomenstalk.com/tips-for-removing-make-up/)
 - [paris stylo smoky eye endless pearl](https://makeup.allwomenstalk.com/daring-ways-to-rock-the-cat-eye-look/)
 - [how to make your eyelashes look long](https://makeup.allwomenstalk.com/ways-to-make-your-eyelashes-appear-longer/)
-- [loreal paris smoky eye shadow hollywood](https://makeup.allwomenstalk.com/tips-for-removing-make-up/)
-- [natural makeup celebrity](https://makeup.allwomenstalk.com/incredible-celebrity-makeup-looks-to-try/)
-- [makeup for skin tone](https://makeup.allwomenstalk.com/marvelous-makeup-tricks-for-uneven-skin-tone/)
 - [makeup term](https://makeup.allwomenstalk.com/makeup-terms-to-watch-out-for/)
-- [how to do your makeup faster](https://makeup.allwomenstalk.com/tips-on-how-to-apply-makeup-faster/)
-- [lia lashes](https://makeup.allwomenstalk.com/mascara-tricks-for-fuller-eyelashes/)
-- [shiny make up](https://makeup.allwomenstalk.com/tips-for-wearing-glitter-makeup/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 - [10 Tips on How to Apply Eye Makeup ...](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 

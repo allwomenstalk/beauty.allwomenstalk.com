@@ -56,16 +56,16 @@ If you've considered going under the knife, talk to your doctor. You may see gre
 
 ## Related Posts
 
-- [how to look good with makeup](https://beauty.allwomenstalk.com/how-to-look-good-without-makeup/)
 - [looking expensive](https://fashion.allwomenstalk.com/how-to-look-expensive/)
-- [8 Fab Style Tips to Make Your Legs Look Longer ...](https://fashion.allwomenstalk.com/styling-tips-to-make-your-legs-look-longer/)
-- [huntb-645](https://beauty.allwomenstalk.com/ways-to-start-loving-your-naked-body/)
-- [how to upgrade your look](https://fashion.allwomenstalk.com/easy-ways-to-upgrade-your-look/)
 - [dressing your body type](https://fashion.allwomenstalk.com/styles-that-do-not-suit-your-body-type/)
+- [youre perfect youre beautiful](https://beauty.allwomenstalk.com/reasons-youre-beautiful-just-the-way-you-are/)
+- [how to look good with makeup](https://beauty.allwomenstalk.com/how-to-look-good-without-makeup/)
+- [huntb-645](https://beauty.allwomenstalk.com/ways-to-start-loving-your-naked-body/)
+- [what you wear can change your life](https://beauty.allwomenstalk.com/how-your-look-can-change-your-life/)
+- [how to upgrade your look](https://fashion.allwomenstalk.com/easy-ways-to-upgrade-your-look/)
 - [kissing with glasses on](https://love.allwomenstalk.com/how-to-kiss-when-you-wear-glasses/)
 - [how do i stop hating my body](https://beauty.allwomenstalk.com/tips-to-help-you-stop-hating-your-body/)
-- [what you wear can change your life](https://beauty.allwomenstalk.com/how-your-look-can-change-your-life/)
-- [youre perfect youre beautiful](https://beauty.allwomenstalk.com/reasons-youre-beautiful-just-the-way-you-are/)
+- [8 Fab Style Tips to Make Your Legs Look Longer ...](https://fashion.allwomenstalk.com/styling-tips-to-make-your-legs-look-longer/)
 - [10 New Ways to Achieve Healthy Looking Skin ...](https://skincare.allwomenstalk.com/new-ways-to-achieve-healthy-looking-skin/)
 - [15 Ways to Look Beautiful without Makeup ...](https://makeup.allwomenstalk.com/ways-to-look-beautiful-without-makeup/)
 

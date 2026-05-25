@@ -48,16 +48,16 @@ Do you know more tricks for preparing for a beauty sleep? Tell us below!
 
 ## Related Posts
 
-- [calming bedroom](https://allwomenstalk.com/ways-create-calming-bedroom/)
-- [going to bed alone](https://health.allwomenstalk.com/tips-for-better-sleep/)
 - [tricks to get out of bed](https://lifestyle.allwomenstalk.com/tips-for-getting-out-of-bed-in-60-seconds/)
-- [google home sleep sounds](https://parenting.allwomenstalk.com/taotronics-white-noise-machine/)
 - [how long does it take you to get ready for a night...](https://health.allwomenstalk.com/how-to-prepare-your-body-for-a-big-night-out/)
-- [habits of organized person](https://lifestyle.allwomenstalk.com/nightly-habits-of-organized-people/)
 - [Top Five Alarm Clocks to Ensure You Dont Sleep in](https://allwomenstalk.com/top-five-alarm-clocks-to-ensure-you-dont-sleep-in/)
 - [how to burn calories in your sleep](https://weightloss.allwomenstalk.com/how-to-lose-weight-in-your-sleep/)
+- [calming bedroom](https://allwomenstalk.com/ways-create-calming-bedroom/)
 - [ovaltine and sleep](https://food.allwomenstalk.com/best-drinks-for-when-you-cant-sleep/)
+- [going to bed alone](https://health.allwomenstalk.com/tips-for-better-sleep/)
+- [google home sleep sounds](https://parenting.allwomenstalk.com/taotronics-white-noise-machine/)
 - [why you should make your bed every morning](https://lifestyle.allwomenstalk.com/why-you-should-make-your-bed-every-morning/)
+- [habits of organized person](https://lifestyle.allwomenstalk.com/nightly-habits-of-organized-people/)
 - [10 Pros of a Beauty Sleep ...](https://beauty.allwomenstalk.com/pros-of-a-beauty-sleep/)
 - [9 Ways to Wake up Beautiful Every Morning ...](https://beauty.allwomenstalk.com/ways-to-wake-up-beautiful-every-morning/)
 

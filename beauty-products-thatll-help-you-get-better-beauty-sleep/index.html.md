@@ -63,16 +63,16 @@ Going to sleep has never been more glam! I love the idea of beauty products work
 
 ## Related Posts
 
-- [insomniac eye](https://funny.allwomenstalk.com/the-grim-realities-of-being-an-insomniac/)
-- [how to wake up with your alarm](https://lifestyle.allwomenstalk.com/wake-up-hacks-to-be-more-of-a-morning-person/)
-- [early riser companion](https://lifestyle.allwomenstalk.com/only-early-risers-can-relate-to-these-pesky-problems/)
 - [girls sleeping mask](https://diy.allwomenstalk.com/need-more-shut-eye-diy-a-cute-sleep-mask/)
-- [beauty sleep essentials](https://lifestyle.allwomenstalk.com/things-that-are-essential-for-your-beauty-sleep/)
-- [those who sleep late are smarter](https://health.allwomenstalk.com/people-who-sleep-late-are-smarter-and-more-creative/)
-- [scary bedtime stories](https://lifestyle.allwomenstalk.com/dont-listen-to-these-creepy-stories-before-your-bedtime/)
 - [what should i do on a sunday](https://lifestyle.allwomenstalk.com/do-these-things-on-sunday-night-to-make-monday-morning-easier/)
 - [i havent had a dream in years](https://lifestyle.allwomenstalk.com/things-that-affect-what-you-dream-about/)
+- [insomniac eye](https://funny.allwomenstalk.com/the-grim-realities-of-being-an-insomniac/)
+- [early riser companion](https://lifestyle.allwomenstalk.com/only-early-risers-can-relate-to-these-pesky-problems/)
+- [those who sleep late are smarter](https://health.allwomenstalk.com/people-who-sleep-late-are-smarter-and-more-creative/)
+- [scary bedtime stories](https://lifestyle.allwomenstalk.com/dont-listen-to-these-creepy-stories-before-your-bedtime/)
+- [how to wake up with your alarm](https://lifestyle.allwomenstalk.com/wake-up-hacks-to-be-more-of-a-morning-person/)
 - [moody in the morning](https://lifestyle.allwomenstalk.com/how-to-be-less-grumpy-in-the-morning/)
+- [beauty sleep essentials](https://lifestyle.allwomenstalk.com/things-that-are-essential-for-your-beauty-sleep/)
 - [7 Ways to Get More out of Beauty Products ...](https://beauty.allwomenstalk.com/ways-to-get-more-out-of-beauty-products/)
 - [7 Must Have Beauty Products for a Natural Look ...](https://beauty.allwomenstalk.com/must-have-beauty-products-for-a-natural-look/)
 

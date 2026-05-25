@@ -42,16 +42,16 @@ Who knows what the beauty industry will come up with next! Would you ever try th
 
 ## Related Posts
 
-- [eco friendly beauty tips](https://beauty.allwomenstalk.com/amazing-eco-friendly-beauty-tips/)
-- [marilyn monroe makeup quotes](https://beauty.allwomenstalk.com/inspiring-bits-of-beauty-advice-from-marilyn-monroe/)
-- [weird medieval beauty standards](https://beauty.allwomenstalk.com/strange-beauty-ingredients-women-used-in-the-past/)
 - [clevertips](https://skincare.allwomenstalk.com/clever-tips-to-get-the-most-out-of-your-face-masks/)
-- [women with beautiful hair](https://beauty.allwomenstalk.com/beauty-tips-for-women-with-dark-hair/)
-- [uses of wax](https://beauty.allwomenstalk.com/uses-for-wax-in-the-beauty-industry/)
-- [skincare infographics](https://beauty.allwomenstalk.com/helpful-beauty-infographics-to-pore-over/)
 - [superstar make up](https://beauty.allwomenstalk.com/top-beauty-tips-to-make-you-look-like-a-superstar/)
-- [model with thick eyebrows cara](https://beauty.allwomenstalk.com/timeless-beauty-looks-thatll-always-be-in-style/)
 - [splendid beauty salon](https://beauty.allwomenstalk.com/splendid-beauty-tips-for-redheads/)
+- [marilyn monroe makeup quotes](https://beauty.allwomenstalk.com/inspiring-bits-of-beauty-advice-from-marilyn-monroe/)
+- [women with beautiful hair](https://beauty.allwomenstalk.com/beauty-tips-for-women-with-dark-hair/)
+- [eco friendly beauty tips](https://beauty.allwomenstalk.com/amazing-eco-friendly-beauty-tips/)
+- [skincare infographics](https://beauty.allwomenstalk.com/helpful-beauty-infographics-to-pore-over/)
+- [uses of wax](https://beauty.allwomenstalk.com/uses-for-wax-in-the-beauty-industry/)
+- [weird medieval beauty standards](https://beauty.allwomenstalk.com/strange-beauty-ingredients-women-used-in-the-past/)
+- [model with thick eyebrows cara](https://beauty.allwomenstalk.com/timeless-beauty-looks-thatll-always-be-in-style/)
 - [7 Night Treatments for Amazing Skin ...](https://skincare.allwomenstalk.com/night-treatments-for-amazing-skin/)
 - [7 Rejuvenating Beauty Tricks ...](https://beauty.allwomenstalk.com/rejuvenating-beauty-tricks/)
 

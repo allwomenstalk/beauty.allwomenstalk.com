@@ -54,15 +54,15 @@ No elective procedure should be entered into lightly and as much as the idea of 
 
 ## Related Posts
 
-- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
-- [tired all the time blood test](https://health.allwomenstalk.com/blood-tests-for-fatigue-to-have-your-doctor-do-if-youre-always-tired/)
-- [what to look for in a juicer](https://health.allwomenstalk.com/essential-things-to-consider-when-buying-a-juicer/)
-- [myths about stds](https://health.allwomenstalk.com/common-myths-about-sexually-transmitted-diseases-and-infections/)
-- [multivitamin without titanium dioxide](https://health.allwomenstalk.com/toxic-ingredients-to-avoid-when-buying-supplements/)
 - [smartphone negative effects](https://health.allwomenstalk.com/negative-effects-of-your-smart-phone-on-your-health/)
-- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
+- [men and anorexia](https://health.allwomenstalk.com/facts-about-male-anorexia-that-you-probably-dont-know-but-should/)
+- [multivitamin without titanium dioxide](https://health.allwomenstalk.com/toxic-ingredients-to-avoid-when-buying-supplements/)
+- [tired all the time blood test](https://health.allwomenstalk.com/blood-tests-for-fatigue-to-have-your-doctor-do-if-youre-always-tired/)
 - [allvulvaarebeautiful](https://health.allwomenstalk.com/things-you-should-know-about-your-vagina/)
 - [bad things for your heart](https://health.allwomenstalk.com/bad-habits-that-could-damage-your-heart/)
+- [does hot yoga tone your body](https://lifestyle.allwomenstalk.com/pros-and-cons-of-hot-yoga-that-you-should-know/)
+- [what to look for in a juicer](https://health.allwomenstalk.com/essential-things-to-consider-when-buying-a-juicer/)
+- [myths about stds](https://health.allwomenstalk.com/common-myths-about-sexually-transmitted-diseases-and-infections/)
 - [how to educate yourself on politics](https://lifestyle.allwomenstalk.com/important-political-issues-you-need-to-educate-yourself-on/)
 - [7 Things You Need to Know before a Brazilian Wax ....](https://skincare.allwomenstalk.com/7-things-you-need-to-know-before-a-brazilian-wax/)
 - [10 Things about Liposuction You Must Know ...](https://allwomenstalk.com/10-things-about-liposuction-you-must-know/)

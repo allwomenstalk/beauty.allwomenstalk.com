@@ -74,16 +74,16 @@ I’m definitely going to try some of these. And when the chafing sets in, just 
 
 ## Related Posts
 
-- [excuse for not attending dinner](https://lifestyle.allwomenstalk.com/great-excuses-for-missing-that-wedding-or-grad-party-this-summer/)
 - [things to do with your bestie in summer](https://lifestyle.allwomenstalk.com/fun-summer-adventures-to-do-with-your-bestie/)
-- [angie miraval](https://food.allwomenstalk.com/these-are-the-perfect-wines-for-summer-nights/)
-- [movies under stars](https://movies.allwomenstalk.com/the-best-places-to-watch-a-movie-under-the-stars-this-summer/)
-- [new things to learn when bored](https://teen.allwomenstalk.com/stave-off-summer-boredom-by-learning-these-new-skills/)
-- [why is summer so annoying](https://beauty.allwomenstalk.com/prepare-yourself-for-these-annoying-summer-problems/)
-- [sarah scribbles period](https://funny.allwomenstalk.com/comics-that-sum-up-my-life-this-summer/)
-- [summer goals list](https://lifestyle.allwomenstalk.com/heres-the-ultimate-squad-goals-summer-bucket-list/)
-- [camp fire recipes](https://food.allwomenstalk.com/easy-campfire-treats-for-the-summer/)
 - [sunday brunch koh samui](https://food.allwomenstalk.com/best-places-to-eat-in-koh-samui-for-people-traveling-to-thailand-this-summer/)
+- [angie miraval](https://food.allwomenstalk.com/these-are-the-perfect-wines-for-summer-nights/)
+- [sarah scribbles period](https://funny.allwomenstalk.com/comics-that-sum-up-my-life-this-summer/)
+- [why is summer so annoying](https://beauty.allwomenstalk.com/prepare-yourself-for-these-annoying-summer-problems/)
+- [summer goals list](https://lifestyle.allwomenstalk.com/heres-the-ultimate-squad-goals-summer-bucket-list/)
+- [new things to learn when bored](https://teen.allwomenstalk.com/stave-off-summer-boredom-by-learning-these-new-skills/)
+- [camp fire recipes](https://food.allwomenstalk.com/easy-campfire-treats-for-the-summer/)
+- [movies under stars](https://movies.allwomenstalk.com/the-best-places-to-watch-a-movie-under-the-stars-this-summer/)
+- [excuse for not attending dinner](https://lifestyle.allwomenstalk.com/great-excuses-for-missing-that-wedding-or-grad-party-this-summer/)
 - [Outdoors-y Girls Need to Guard against These Summe...](https://skincare.allwomenstalk.com/summertime-skin-issues-to-think-about-when-youre-outside/)
 - [Dazzling Bikini Styling Tipsfor Girls Who Want to ...](https://fashion.allwomenstalk.com/check-out-these-fun-ways-to-accessorize-your-bikini/)
 

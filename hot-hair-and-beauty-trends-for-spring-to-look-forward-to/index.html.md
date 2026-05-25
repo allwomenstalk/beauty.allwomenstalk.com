@@ -68,16 +68,16 @@ The hair and beauty trends for spring 2014 are very classy, feminine and quite w
 
 ## Related Posts
 
-- [new black colour](https://fashion.allwomenstalk.com/reasons-the-color-nude-is-the-new-black-this-year/)
-- [2014 style trends](https://fashion.allwomenstalk.com/fun-s-fashion-trends-that-are-back-for/)
-- [tacky wear](https://fashion.allwomenstalk.com/extremely-tacky-fashion-trends-that-need-to-end/)
-- [riche le stylo eye primped and previous](https://hair.allwomenstalk.com/of-2014s-most-popular-hair-trends-for-the-fall/)
-- [plaid shirt 90s style](https://fashion.allwomenstalk.com/90s-fashion-trends-to-take-you-back/)
 - [fashion trend tracker](https://fashion.allwomenstalk.com/trend-tracker-fall-is-mad-for-plaid/)
-- [practical and fashionable](https://fashion.allwomenstalk.com/of-the-least-practical-fashion-trends-that-ever-existed/)
-- [fashion trends that should never come back](https://fashion.allwomenstalk.com/fashion-trends-we-hope-will-never-come-back/)
-- [timeless styles](https://fashion.allwomenstalk.com/timeless-fashion-trends-that-will-never-go-out-of-style/)
 - [trend chic](https://streetstyle.allwomenstalk.com/street-style-ways-to-look-preppy-chic-this-fall/)
+- [riche le stylo eye primped and previous](https://hair.allwomenstalk.com/of-2014s-most-popular-hair-trends-for-the-fall/)
+- [practical and fashionable](https://fashion.allwomenstalk.com/of-the-least-practical-fashion-trends-that-ever-existed/)
+- [timeless styles](https://fashion.allwomenstalk.com/timeless-fashion-trends-that-will-never-go-out-of-style/)
+- [2014 style trends](https://fashion.allwomenstalk.com/fun-s-fashion-trends-that-are-back-for/)
+- [fashion trends that should never come back](https://fashion.allwomenstalk.com/fashion-trends-we-hope-will-never-come-back/)
+- [plaid shirt 90s style](https://fashion.allwomenstalk.com/90s-fashion-trends-to-take-you-back/)
+- [tacky wear](https://fashion.allwomenstalk.com/extremely-tacky-fashion-trends-that-need-to-end/)
+- [new black colour](https://fashion.allwomenstalk.com/reasons-the-color-nude-is-the-new-black-this-year/)
 - [5 Beauty Trends for Spring 2009 Youll Love ...](https://allwomenstalk.com/5-beauty-trends-for-spring/)
 - [9 Stylish Spring Haircuts for You to Try ...](https://hair.allwomenstalk.com/stylish-spring-haircuts-for-you-to-try/)
 

@@ -118,16 +118,16 @@ Now that you know exactly what lip balms are out there and which ones are the be
 
 ## Related Posts
 
-- [best felt tip eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners/)
-- [lipstick fail](https://makeup.allwomenstalk.com/fail-proof-tips-for-perfect-lipstick/)
-- [dark lipstick looks](https://makeup.allwomenstalk.com/essential-tips-on-pulling-off-dark-lipstick/)
-- [the best liquid eyeliner pen](https://makeup.allwomenstalk.com/best-liquid-eyeliner-pens-for-gorgeous-eyes/)
-- [paris color riche le stylo infinite](https://makeup.allwomenstalk.com/reasons-to-use-lip-stain-instead-of-lipstick/)
-- [lipstick colours for tan skin](https://makeup.allwomenstalk.com/of-the-best-lipsticks-for-blondes/)
-- [loreal paris color riche le stylo smoldering plum](https://makeup.allwomenstalk.com/luscious-lip-enhancers-thatll-transform-your-lips/)
-- [color le smoky unforgettable lilac](https://makeup.allwomenstalk.com/luscious-lipsticks-for-valentines-day/)
 - [bold lip colors](https://makeup.allwomenstalk.com/bold-lip-colors-that-arent-for-the-faint-of-heart/)
+- [loreal paris color riche le stylo smoldering plum](https://makeup.allwomenstalk.com/luscious-lip-enhancers-thatll-transform-your-lips/)
+- [paris color riche le stylo infinite](https://makeup.allwomenstalk.com/reasons-to-use-lip-stain-instead-of-lipstick/)
 - [lips fuller](https://makeup.allwomenstalk.com/ways-to-make-your-lips-look-fuller/)
+- [best felt tip eyeliner](https://makeup.allwomenstalk.com/best-liquid-eyeliners/)
+- [lipstick colours for tan skin](https://makeup.allwomenstalk.com/of-the-best-lipsticks-for-blondes/)
+- [dark lipstick looks](https://makeup.allwomenstalk.com/essential-tips-on-pulling-off-dark-lipstick/)
+- [lipstick fail](https://makeup.allwomenstalk.com/fail-proof-tips-for-perfect-lipstick/)
+- [color le smoky unforgettable lilac](https://makeup.allwomenstalk.com/luscious-lipsticks-for-valentines-day/)
+- [the best liquid eyeliner pen](https://makeup.allwomenstalk.com/best-liquid-eyeliner-pens-for-gorgeous-eyes/)
 - [10 Best Lip Balms for Winter ...](https://allwomenstalk.com/10-best-lip-balms-for-winter/)
 - [13 Best Lip Glosses ...](https://allwomenstalk.com/13-best-lip-glosses/)
 

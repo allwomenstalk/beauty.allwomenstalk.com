@@ -50,13 +50,13 @@ Implementing these simple choices from your diet, exercise, sleep and skincare r
 
 ## Related Posts
 
-- [foxy spray tan](https://skincare.allwomenstalk.com/best-self-tanning-tips-for-a-foxy-glow/)
+- [how to make your spray tan last](https://skincare.allwomenstalk.com/essential-pointers-on-making-your-spray-tan-last/)
 - [home remedy for skin care](https://skincare.allwomenstalk.com/home-remedies-for-skin-care-issues/)
 - [does candy cause acne](https://beauty.allwomenstalk.com/foods-that-ruin-your-skin/)
-- [tips for younger skin](https://skincare.allwomenstalk.com/anti-aging-tips-for-younger-skin/)
-- [how to make your spray tan last](https://skincare.allwomenstalk.com/essential-pointers-on-making-your-spray-tan-last/)
-- [face yoga crows feet](https://skincare.allwomenstalk.com/tips-to-prevent-and-treat-crows-feet/)
+- [foxy spray tan](https://skincare.allwomenstalk.com/best-self-tanning-tips-for-a-foxy-glow/)
 - [how to be bikini ready](https://skincare.allwomenstalk.com/tips-for-bikini-ready-skin/)
+- [tips for younger skin](https://skincare.allwomenstalk.com/anti-aging-tips-for-younger-skin/)
+- [face yoga crows feet](https://skincare.allwomenstalk.com/tips-to-prevent-and-treat-crows-feet/)
 - [apple cider vinegar keloid](https://skincare.allwomenstalk.com/tips-on-treating-and-concealing-keloid-scars/)
 - [how to get sunkissed](https://makeup.allwomenstalk.com/ways-to-fake-your-way-to-sun-kissed-skin/)
 - [sensational skincare](https://skincare.allwomenstalk.com/sensational-spring-break-skin-care-tips/)

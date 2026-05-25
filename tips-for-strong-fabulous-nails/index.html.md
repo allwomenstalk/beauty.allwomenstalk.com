@@ -48,14 +48,14 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/22808679)
 
 ## Related Posts
 
-- [Manicure ...](https://allwomenstalk.com/manicure/)
+- [Pedicure at Home-easy Steps](https://allwomenstalk.com/pedicure-at-home-easy-steps/)
+- [Pedicure Tips ...](https://allwomenstalk.com/pedicure-tips/)
+- [Health: 12 Tips for Beautiful Nails](https://allwomenstalk.com/health-12-tips-for-beautiful-nails/)
 - [Tips on Giving Yourself a Pedicure](https://allwomenstalk.com/tips-on-giving-yourself-a-pedicure/)
 - [Foot Care ...](https://allwomenstalk.com/foot-care/)
 - [Feet Care Tips ...](https://allwomenstalk.com/feet-care-tips/)
+- [Manicure ...](https://allwomenstalk.com/manicure/)
 - [Hand and Nail Care: do and Dont for Healthy Hands ...](https://allwomenstalk.com/hand-and-nail-care-do-and-dont-for-healthy-hands/)
-- [Pedicure Tips ...](https://allwomenstalk.com/pedicure-tips/)
-- [Health: 12 Tips for Beautiful Nails](https://allwomenstalk.com/health-12-tips-for-beautiful-nails/)
-- [Pedicure at Home-easy Steps](https://allwomenstalk.com/pedicure-at-home-easy-steps/)
 - [In a Nail Polishing Rut](https://allwomenstalk.com/in-a-nail-polishing-rut/)
 - [Slowly Transition Your Black Nails into Spring](https://allwomenstalk.com/slowly-transition-your-black-nails-into-spring/)
 - [8 Ways to Fabulous Summer Feet ...](https://skincare.allwomenstalk.com/ways-to-fabulous-summer-feet/)

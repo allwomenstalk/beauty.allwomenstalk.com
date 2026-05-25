@@ -58,8 +58,6 @@ Top Image Source: [nataliavodianovafan.wordpress.com](https://nataliavodianovafa
 
 ## Related Posts
 
-- [best all in one makeup palettes](https://makeup.allwomenstalk.com/pretty-multipurpose-makeup-palettes-to-try/)
-- [functioning beauty](https://beauty.allwomenstalk.com/incredibly-multi-functioning-beauty-products/)
 - [le smoky endless](https://makeup.allwomenstalk.com/great-eyeshadow-palettes/)
 - [cosmetixclub](https://makeup.allwomenstalk.com/worst-makeup-brands-out-there/)
 - [is silicone primer good for oily skin](https://makeup.allwomenstalk.com/makeup-primers-without-silicone/)
@@ -67,7 +65,9 @@ Top Image Source: [nataliavodianovafan.wordpress.com](https://nataliavodianovafa
 - [best mascara for short lashes sephora](https://makeup.allwomenstalk.com/amazing-mascaras-for-short-eyelashes/)
 - [pink eyeshadow on brown eyes](https://makeup.allwomenstalk.com/beautiful-eyeshadows-for-dark-brown-eyes/)
 - [independent makeup](https://makeup.allwomenstalk.com/independent-makeup-brands-you-must-try/)
+- [best all in one makeup palettes](https://makeup.allwomenstalk.com/pretty-multipurpose-makeup-palettes-to-try/)
 - [color le shadow avant azure](https://beauty.allwomenstalk.com/chic-cobalt-blue-beauty-buys/)
+- [functioning beauty](https://beauty.allwomenstalk.com/incredibly-multi-functioning-beauty-products/)
 - [8 Quirky Cosmetics Cases ...](https://makeup.allwomenstalk.com/quirky-cosmetics-cases/)
 - [8 Essential Makeup Accessories ...](https://makeup.allwomenstalk.com/essential-makeup-accessories/)
 

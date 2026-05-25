@@ -56,15 +56,15 @@ So now that I’ve updated you on some fabulous hair removal products, what do y
 
 ## Related Posts
 
-- [why you shouldnt wash your hair](https://hair.allwomenstalk.com/convincing-reasons-why-you-shouldnt-wash-your-hair-every-day/)
-- [bangs to hide forehead wrinkles](https://hair.allwomenstalk.com/things-to-think-about-before-cutting-your-bangs/)
-- [best ways to curl your hair](https://hair.allwomenstalk.com/awesome-ways-to-curl-your-hair/)
-- [natural hair vs straight hair](https://hair.allwomenstalk.com/style-tips-for-naturally-straight-hair/)
-- [lush curly hair](https://hair.allwomenstalk.com/curling-iron-tricks-and-tips-for-lush-curls-and-waves/)
-- [how to sleep on styled hair](https://hair.allwomenstalk.com/tips-to-sleep-your-way-to-gorgeously-styled-hair/)
-- [is backcombing bad for your hair](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair-and-how-to-avoid-them/)
-- [hair that ages you](https://hair.allwomenstalk.com/hair-mistakes-that-age-you/)
 - [my scalp is really itchy](https://hair.allwomenstalk.com/reasons-for-an-itchy-scalp-to-consider/)
+- [how to sleep on styled hair](https://hair.allwomenstalk.com/tips-to-sleep-your-way-to-gorgeously-styled-hair/)
+- [best ways to curl your hair](https://hair.allwomenstalk.com/awesome-ways-to-curl-your-hair/)
+- [bangs to hide forehead wrinkles](https://hair.allwomenstalk.com/things-to-think-about-before-cutting-your-bangs/)
+- [is backcombing bad for your hair](https://hair.allwomenstalk.com/worst-things-to-do-to-your-hair-and-how-to-avoid-them/)
+- [why you shouldnt wash your hair](https://hair.allwomenstalk.com/convincing-reasons-why-you-shouldnt-wash-your-hair-every-day/)
+- [natural hair vs straight hair](https://hair.allwomenstalk.com/style-tips-for-naturally-straight-hair/)
+- [hair that ages you](https://hair.allwomenstalk.com/hair-mistakes-that-age-you/)
+- [lush curly hair](https://hair.allwomenstalk.com/curling-iron-tricks-and-tips-for-lush-curls-and-waves/)
 - [curly hair boy kids](https://parenting.allwomenstalk.com/tips-for-caring-for-curly-haired-kids/)
 - [7 Quick Fixes for Your Hair ...](https://hair.allwomenstalk.com/quick-fixes-for-your-hair/)
 - [7 Little Known Hair Care Tips That Work ...](https://hair.allwomenstalk.com/little-known-hair-care-tips-that-work/)

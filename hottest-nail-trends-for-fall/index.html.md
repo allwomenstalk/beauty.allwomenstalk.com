@@ -44,16 +44,16 @@ Top Photo Credit: _Idhren_
 
 ## Related Posts
 
-- [8 Nail Trends for 2011 ...](https://fashion.allwomenstalk.com/nail-trends-for/)
 - [French Manicure](https://allwomenstalk.com/french-manicure/)
-- [trending spring nail colors](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
-- [bright nail colours](https://makeup.allwomenstalk.com/acid-bright-nail-polish-colors-to-try/)
-- [summer nails pastels](https://allwomenstalk.com/9-fab-summer-nail-polishes-pastels-need-not-apply/)
-- [opi pink to envy reviews](https://allwomenstalk.com/review-opi-nail-envy/)
-- [instant manicure](https://allwomenstalk.com/avons-instant-manicure/)
-- [nailsuperstore](https://allwomenstalk.com/opi-hong-kong-collection-meet-me-on-the-star-ferry-nail-lacquer-review/)
 - [celebrity nail trends](https://allwomenstalk.com/10-nail-trends-celebs-are-following-this-spring/)
+- [trending spring nail colors](https://makeup.allwomenstalk.com/on-trend-spring-nail-colors/)
 - [bare minerals nail polish](https://allwomenstalk.com/bare-escentuals-introduces-mineral-nail-polish-nail-tech-secrets/)
+- [nailsuperstore](https://allwomenstalk.com/opi-hong-kong-collection-meet-me-on-the-star-ferry-nail-lacquer-review/)
+- [summer nails pastels](https://allwomenstalk.com/9-fab-summer-nail-polishes-pastels-need-not-apply/)
+- [instant manicure](https://allwomenstalk.com/avons-instant-manicure/)
+- [opi pink to envy reviews](https://allwomenstalk.com/review-opi-nail-envy/)
+- [bright nail colours](https://makeup.allwomenstalk.com/acid-bright-nail-polish-colors-to-try/)
+- [8 Nail Trends for 2011 ...](https://fashion.allwomenstalk.com/nail-trends-for/)
 - [7 Most Fashionable Nail Polishes of Today ...](https://allwomenstalk.com/7-most-fashionable-nail-polishes-of-today/)
 - [7 Gorgeous Nail Polishes for Fall ...](https://allwomenstalk.com/7-gorgeous-nail-polishes-for-fall/)
 

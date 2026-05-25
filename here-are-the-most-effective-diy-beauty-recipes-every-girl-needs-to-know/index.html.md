@@ -68,15 +68,15 @@ I can't wait to hear about your results from these DIYs! Be sure you come back a
 ## Related Posts
 
 - [The Top 7 Beauty Terms You Need in 2017 ...](https://beauty.allwomenstalk.com/the-top-beauty-terms-you-need-in/)
-- [Old School Beauty Taboos You Shouldnt Really Care ...](https://beauty.allwomenstalk.com/old-school-beauty-taboos-you-shouldnt-really-care-about/)
-- [Super Speedy  Beauty Treatments for Girls Who Just...](https://beauty.allwomenstalk.com/super-speedy-beauty-treatments-for-girls-who-just-never-have-time/)
-- [diy beauty treatments](https://beauty.allwomenstalk.com/super-easy-diy-beauty-treatments-for-girls-who-want-to-look-beyond-gorgeous/)
 - [hot transition](https://beauty.allwomenstalk.com/flawlessly-transition-into-fall-with-these-hot-x-beauty-tips/)
-- [Heres How Blurring Sticks Will Change Your Beauty ...](https://skincare.allwomenstalk.com/heres-how-blurring-sticks-will-change-your-beauty-routine/)
+- [diy beauty treatments](https://beauty.allwomenstalk.com/super-easy-diy-beauty-treatments-for-girls-who-want-to-look-beyond-gorgeous/)
+- [paris riche le stylo golden emerald](https://beauty.allwomenstalk.com/fab-tips-for-regular-girls-wanting-to-recreate-the-latest-beauty-trends/)
 - [Natural Beauty is Expressed in These 143 Fabulous ...](https://beauty.allwomenstalk.com/natural-beauty-is-expressed-in-these-fabulous-pictures/)
+- [Super Speedy  Beauty Treatments for Girls Who Just...](https://beauty.allwomenstalk.com/super-speedy-beauty-treatments-for-girls-who-just-never-have-time/)
 - [Ultimate Beauty Steps for Girls Who Want to Try a ...](https://skincare.allwomenstalk.com/ultimate-beauty-steps-for-girls-who-want-to-try-a-korean-skincare-routine/)
 - [Fix Your Beauty Woes by Checking out This Chicks Y...](https://makeup.allwomenstalk.com/fix-your-beauty-woes-by-checking-out-this-chicks-yt-channel/)
-- [paris riche le stylo golden emerald](https://beauty.allwomenstalk.com/fab-tips-for-regular-girls-wanting-to-recreate-the-latest-beauty-trends/)
+- [Old School Beauty Taboos You Shouldnt Really Care ...](https://beauty.allwomenstalk.com/old-school-beauty-taboos-you-shouldnt-really-care-about/)
+- [Heres How Blurring Sticks Will Change Your Beauty ...](https://skincare.allwomenstalk.com/heres-how-blurring-sticks-will-change-your-beauty-routine/)
 - [Beauty Tips You Need to Know to Put Your Best Face...](https://beauty.allwomenstalk.com/beauty-tips-you-need-to-know/)
 - [Super Secret Beauty Tips You Need to Know Now ...](https://beauty.allwomenstalk.com/hush-hush-beauty-secrets-you-need-to-know-now/)
 

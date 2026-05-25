@@ -102,16 +102,16 @@ Hair removal is one of the universal problems that both genders share. However w
 
 ## Related Posts
 
-- [aveda shampoo deals](https://hair.allwomenstalk.com/great-shampoos-and-conditioners-for-fine-hair/)
-- [transitioning hairstyles](https://hair.allwomenstalk.com/more-natural-and-transitioning-hair-terms/)
-- [worst products for hair](https://hair.allwomenstalk.com/of-the-worst-hair-products-ever/)
-- [air dry conditioner](https://hair.allwomenstalk.com/radical-reasons-to-use-dry-conditioner/)
-- [soap for goodness sake shampoo](https://hair.allwomenstalk.com/nontoxic-shampoos-that-are-great-for-your-hair-and-the-environment/)
-- [white girl perms](https://hair.allwomenstalk.com/great-online-resources-for-curly-haired-women/)
-- [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
-- [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
 - [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
+- [aveda shampoo deals](https://hair.allwomenstalk.com/great-shampoos-and-conditioners-for-fine-hair/)
+- [air dry conditioner](https://hair.allwomenstalk.com/radical-reasons-to-use-dry-conditioner/)
+- [white girl perms](https://hair.allwomenstalk.com/great-online-resources-for-curly-haired-women/)
+- [soap for goodness sake shampoo](https://hair.allwomenstalk.com/nontoxic-shampoos-that-are-great-for-your-hair-and-the-environment/)
+- [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
+- [worst products for hair](https://hair.allwomenstalk.com/of-the-worst-hair-products-ever/)
 - [best moroccanoil for hair](https://hair.allwomenstalk.com/the-best-hair-oils/)
+- [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
+- [transitioning hairstyles](https://hair.allwomenstalk.com/more-natural-and-transitioning-hair-terms/)
 - [8 Awesome Hair Care Products ...](https://hair.allwomenstalk.com/awesome-hair-care-products/)
 - [7 Best Hairstyling Products Ever ...](https://allwomenstalk.com/7-best-hairstyling-products-ever/)
 

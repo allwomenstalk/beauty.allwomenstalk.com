@@ -46,16 +46,16 @@ I hope this list of 8 youthful attributes at least entertained you if nothing el
 
 ## Related Posts
 
-- [prioties](https://inspiration.allwomenstalk.com/secrets-to-living-a-balanced-and-purpose-filled-life/)
-- [how to communicate with new friends](https://lifestyle.allwomenstalk.com/unfailing-ways-to-make-new-friends-wherever-you-go/)
 - [things you want in life](https://inspiration.allwomenstalk.com/sure-ways-to-get-what-you-want-in-life/)
-- [life plateau](https://inspiration.allwomenstalk.com/ways-to-move-past-plateaus-in-your-life/)
-- [what is encouraged](https://inspiration.allwomenstalk.com/ways-to-encourage-yourself/)
-- [kimberly fuhrman](https://health.allwomenstalk.com/health-gurus-to-listen-to-if-you-want-a-healthy-life/)
-- [when everything feels hopeless](https://lifestyle.allwomenstalk.com/positive-things-to-tell-yourself-when-life-feels-hopeless/)
 - [trending self help books](https://books.allwomenstalk.com/amazing-self-help-books-that-will-immediately-get-you-back-on-your-feet/)
+- [prioties](https://inspiration.allwomenstalk.com/secrets-to-living-a-balanced-and-purpose-filled-life/)
+- [when everything feels hopeless](https://lifestyle.allwomenstalk.com/positive-things-to-tell-yourself-when-life-feels-hopeless/)
+- [life plateau](https://inspiration.allwomenstalk.com/ways-to-move-past-plateaus-in-your-life/)
 - [positive things to tell yourself](https://inspiration.allwomenstalk.com/positive-truths-to-tell-yourself-each-and-every-single-day/)
+- [kimberly fuhrman](https://health.allwomenstalk.com/health-gurus-to-listen-to-if-you-want-a-healthy-life/)
 - [putting out positive energy](https://inspiration.allwomenstalk.com/ways-to-put-out-positive-energy/)
+- [what is encouraged](https://inspiration.allwomenstalk.com/ways-to-encourage-yourself/)
+- [how to communicate with new friends](https://lifestyle.allwomenstalk.com/unfailing-ways-to-make-new-friends-wherever-you-go/)
 - [8 Ways to Motivate Your Child ...](https://parenting.allwomenstalk.com/8-ways-to-motivate-your-child/)
 - [8 Sobering but Simple Lessons in Life We Can Learn...](https://lifestyle.allwomenstalk.com/sobering-but-simple-lessons-in-life-we-can-learn-from-children/)
 

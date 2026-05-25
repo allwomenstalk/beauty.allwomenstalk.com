@@ -56,16 +56,16 @@ If you’ve been thinking about trying out a luxury lip balm, you’ve got seven
 
 ## Related Posts
 
-- [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
-- [best mascara to make lashes look thicker](https://makeup.allwomenstalk.com/amazing-mascaras-to-try-for-thicker-fuller-lashes/)
-- [best lipstick for work](https://makeup.allwomenstalk.com/awesome-lipsticks-appropriate-for-work/)
-- [how to get chapstick out of hair](https://beauty.allwomenstalk.com/surprising-uses-for-lip-balm-other-than-on-your-lips/)
-- [mac derriere](https://makeup.allwomenstalk.com/gorgeous-autumn-lipsticks-to-wear-this-season/)
-- [how to keep nail paint long lasting](https://makeup.allwomenstalk.com/ways-to-make-your-lipstick-last-longer/)
-- [vegan lip balms](https://makeup.allwomenstalk.com/all-natural-organic-vegan-lip-balms-that-you-must-try/)
 - [josie maran embrace it honey lipstick](https://makeup.allwomenstalk.com/luscious-lipsticks-for-summer-that-youre-gonna-love/)
-- [feed lips pure 09 shimmer](https://makeup.allwomenstalk.com/decadent-drugstore-lip-glosses-you-have-to-try/)
+- [best lipstick for work](https://makeup.allwomenstalk.com/awesome-lipsticks-appropriate-for-work/)
 - [red lip look](https://beauty.allwomenstalk.com/dos-and-donts-of-wearing-red-lipstick-that-any-makeup-lover-should-know/)
+- [feed lips pure 09 shimmer](https://makeup.allwomenstalk.com/decadent-drugstore-lip-glosses-you-have-to-try/)
+- [how to keep nail paint long lasting](https://makeup.allwomenstalk.com/ways-to-make-your-lipstick-last-longer/)
+- [loreal paris riche le stylo smoky neon](https://makeup.allwomenstalk.com/neon-lipstick-colors-to-try/)
+- [mac derriere](https://makeup.allwomenstalk.com/gorgeous-autumn-lipsticks-to-wear-this-season/)
+- [how to get chapstick out of hair](https://beauty.allwomenstalk.com/surprising-uses-for-lip-balm-other-than-on-your-lips/)
+- [best mascara to make lashes look thicker](https://makeup.allwomenstalk.com/amazing-mascaras-to-try-for-thicker-fuller-lashes/)
+- [vegan lip balms](https://makeup.allwomenstalk.com/all-natural-organic-vegan-lip-balms-that-you-must-try/)
 - [7 Best Lip Plumpers That Actually Work ...](https://allwomenstalk.com/3-best-lip-plumpers-that-would-make-angelina-jolie-jealous/)
 - [10 Best Lip Balms for Winter ...](https://allwomenstalk.com/10-best-lip-balms-for-winter/)
 

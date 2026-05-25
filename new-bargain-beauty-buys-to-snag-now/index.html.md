@@ -68,16 +68,16 @@ There are so many new bargain beauty buys that I can’t wait to try, I just don
 
 ## Related Posts
 
-- [best mascara for thickness and volume](https://makeup.allwomenstalk.com/best-mascaras-under-20-thatll-leave-your-lashes-looking-fantastic/)
-- [paris color stylo shadow golden emerald](https://makeup.allwomenstalk.com/gorgeous-green-makeup-products-to-pick-up-now/)
-- [what is bronze skin tone](https://makeup.allwomenstalk.com/cosmetics-that-look-good-on-every-skin-tone-and-colour/)
-- [blush drug store](https://makeup.allwomenstalk.com/best-drugstore-blushes-that-wont-break-the-bank/)
 - [best drugstore bronzers uk](https://makeup.allwomenstalk.com/decadent-drugstore-bronzers-that-will-change-your-life/)
-- [is makeup toxic to cats](https://makeup.allwomenstalk.com/animal-friendly-makeup-products-for-you-to-enjoy/)
-- [non toxic waterproof mascara](https://makeup.allwomenstalk.com/non-toxic-mascaras-your-lashes-will-love/)
 - [purple witch makeup](https://makeup.allwomenstalk.com/purple-makeup-products-to-add-to-your-makeup-bag-this-spring/)
-- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-items-every-girl-needs-in-her-makeup-bag/)
 - [best date night beauty product](https://beauty.allwomenstalk.com/date-night-beauty-must-haves-to-snag-now/)
+- [non toxic waterproof mascara](https://makeup.allwomenstalk.com/non-toxic-mascaras-your-lashes-will-love/)
+- [is makeup toxic to cats](https://makeup.allwomenstalk.com/animal-friendly-makeup-products-for-you-to-enjoy/)
+- [what is bronze skin tone](https://makeup.allwomenstalk.com/cosmetics-that-look-good-on-every-skin-tone-and-colour/)
+- [paris color stylo shadow golden emerald](https://makeup.allwomenstalk.com/gorgeous-green-makeup-products-to-pick-up-now/)
+- [best mascara for thickness and volume](https://makeup.allwomenstalk.com/best-mascaras-under-20-thatll-leave-your-lashes-looking-fantastic/)
+- [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-items-every-girl-needs-in-her-makeup-bag/)
+- [blush drug store](https://makeup.allwomenstalk.com/best-drugstore-blushes-that-wont-break-the-bank/)
 - [10 Classic Beauty Buys for 2010 ...](https://allwomenstalk.com/classic-beauty-buys-for/)
 - [8 Great Drugstore Beauty Buys ...](https://allwomenstalk.com/great-drugstore-beauty-buys/)
 

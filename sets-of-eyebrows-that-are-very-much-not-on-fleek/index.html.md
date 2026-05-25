@@ -140,16 +140,16 @@ So I've been guilty of sperm brows, thin brows, and Joan Crawford brows. Let me 
 
 ## Related Posts
 
+- [how to keep makeup on all day](https://makeup.allwomenstalk.com/how-to-keep-your-eye-liner-in-place-all-day/)
+- [loreal la maximalist eyeshadow blinged brilliant](https://makeup.allwomenstalk.com/ways-to-pull-off-blue-eyeliner/)
+- [le stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/these-fab-fall-makeup-tutorials-will-change-your-life/)
+- [seventeen selfies](https://makeup.allwomenstalk.com/selfie-makeup-tips-from-seventeen/)
 - [long nose contour](https://makeup.allwomenstalk.com/makeup-tips-for-women-with-larger-noses/)
 - [sofia vergara et](https://makeup.allwomenstalk.com/makeup-tips-to-steal-from-sofia-vergara/)
-- [loreal la maximalist eyeshadow blinged brilliant](https://makeup.allwomenstalk.com/ways-to-pull-off-blue-eyeliner/)
-- [makeup gurus](https://makeup.allwomenstalk.com/makeup-gurus-thatll-up-your-style-game/)
-- [seventeen selfies](https://makeup.allwomenstalk.com/selfie-makeup-tips-from-seventeen/)
-- [best age defying makeup](https://makeup.allwomenstalk.com/the-step-by-step-guide-to-age-defying-makeup/)
-- [how to keep makeup on all day](https://makeup.allwomenstalk.com/how-to-keep-your-eye-liner-in-place-all-day/)
-- [le stylo smoky eye eternal sunshine](https://makeup.allwomenstalk.com/these-fab-fall-makeup-tutorials-will-change-your-life/)
 - [flapper eye makeup](https://makeup.allwomenstalk.com/flapper-inspired-makeup-tutorials/)
 - [best blush for no foundation](https://makeup.allwomenstalk.com/blush-for-beginners/)
+- [best age defying makeup](https://makeup.allwomenstalk.com/the-step-by-step-guide-to-age-defying-makeup/)
+- [makeup gurus](https://makeup.allwomenstalk.com/makeup-gurus-thatll-up-your-style-game/)
 - [The Model Eyebrow ...](https://allwomenstalk.com/the-model-eyebrow/)
 - [The Model Eyebrow ...](https://allwomenstalk.com/the-model-eyebrow-3/)
 

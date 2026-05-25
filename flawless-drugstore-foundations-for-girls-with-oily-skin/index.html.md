@@ -80,15 +80,15 @@ Here are some of my personal favorite drugstore foundations that will keep you l
 
 ## Related Posts
 
-- [3 Absolute Must Have Beauty Products for Ladies Wh...](https://beauty.allwomenstalk.com/must-have-beauty-products-for-flawless-skin/)
-- [black friday 2017 sephora](https://beauty.allwomenstalk.com/best-black-friday-deals-from-sephora/)
-- [5 Beauty Companies Owned by Black Women ...](https://beauty.allwomenstalk.com/beauty-companies-owned-by-black-women/)
-- [New Cannabis Oil Infused Mascara on the Market ...](https://makeup.allwomenstalk.com/milk-makeup-introduce-cannabis-oil-infused-mascara/)
-- [8 Best Beauty Essentials for Summer 2018 ...](https://beauty.allwomenstalk.com/beauty-essentials-for-summer/)
-- [top 5 best concealers](https://makeup.allwomenstalk.com/best-concealers-for-all-budgets/)
-- [riche stylo hollywood icon](https://makeup.allwomenstalk.com/the-makeup-brushes-every-collection-needs/)
 - [5 Awesome Benefits of Organic Makeup Every Girl Ne...](https://beauty.allwomenstalk.com/benefits-of-organic-makeup/)
+- [8 Best Beauty Essentials for Summer 2018 ...](https://beauty.allwomenstalk.com/beauty-essentials-for-summer/)
+- [New Cannabis Oil Infused Mascara on the Market ...](https://makeup.allwomenstalk.com/milk-makeup-introduce-cannabis-oil-infused-mascara/)
+- [3 Absolute Must Have Beauty Products for Ladies Wh...](https://beauty.allwomenstalk.com/must-have-beauty-products-for-flawless-skin/)
+- [5 Beauty Companies Owned by Black Women ...](https://beauty.allwomenstalk.com/beauty-companies-owned-by-black-women/)
+- [top 5 best concealers](https://makeup.allwomenstalk.com/best-concealers-for-all-budgets/)
 - [10 Mind-blowing Beauty Products to Try in 2018 ...](https://beauty.allwomenstalk.com/new-beauty-products-you-must-try/)
+- [riche stylo hollywood icon](https://makeup.allwomenstalk.com/the-makeup-brushes-every-collection-needs/)
+- [black friday 2017 sephora](https://beauty.allwomenstalk.com/best-black-friday-deals-from-sephora/)
 - [Vegan Cosmetics Brands All Girls Will Fall in Love...](https://makeup.allwomenstalk.com/best-vegan-cosmetics-brands/)
 - [8 Light Oil-Free Foundations ...](https://makeup.allwomenstalk.com/light-oil-free-foundations/)
 - [8 Best Drugstore Beauty Products ...](https://makeup.allwomenstalk.com/best-drugstore-beauty-products-3/)

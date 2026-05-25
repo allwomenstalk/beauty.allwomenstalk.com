@@ -90,15 +90,15 @@ These designs are absolutely adorable! They're perfect for any makeup lover who 
 
 ## Related Posts
 
-- [what body wash do celebrities use](https://beauty.allwomenstalk.com/shockingly-cheap-drugstore-beauty-products-celebrities-use/)
-- [nurse jamie instant uplift](https://beauty.allwomenstalk.com/buzzworthy-beauty-devices-that-are-actually-worth-the-cost/)
-- [makeup strobing](https://makeup.allwomenstalk.com/amazing-highlighters-for-girls-who-cannot-get-enough-of-their-strobing/)
-- [mascara for the beach](https://makeup.allwomenstalk.com/waterproof-mascaras-for-girls-who-basically-live-at-the-beach/)
-- [girls wearing makeup](https://beauty.allwomenstalk.com/beauty-and-lifestyle-inspo-from-carlibel-all-makeup-addicts-are-gonna-love/)
-- [tan makeup look](https://makeup.allwomenstalk.com/all-brunettes-will-love-these-stunning-makeup-looks/)
-- [makeupaddict](https://makeup.allwomenstalk.com/gorgeous-looks-every-makeup-addict-must-try/)
 - [waterproof makeup products](https://makeup.allwomenstalk.com/waterproof-makeup-products-for-girls-who-love-the-beach/)
+- [mascara for the beach](https://makeup.allwomenstalk.com/waterproof-mascaras-for-girls-who-basically-live-at-the-beach/)
+- [makeup strobing](https://makeup.allwomenstalk.com/amazing-highlighters-for-girls-who-cannot-get-enough-of-their-strobing/)
 - [perfect eybrows](https://makeup.allwomenstalk.com/these-kits-will-have-your-brows-on-fleek-in-no-time/)
+- [makeupaddict](https://makeup.allwomenstalk.com/gorgeous-looks-every-makeup-addict-must-try/)
+- [what body wash do celebrities use](https://beauty.allwomenstalk.com/shockingly-cheap-drugstore-beauty-products-celebrities-use/)
+- [girls wearing makeup](https://beauty.allwomenstalk.com/beauty-and-lifestyle-inspo-from-carlibel-all-makeup-addicts-are-gonna-love/)
+- [nurse jamie instant uplift](https://beauty.allwomenstalk.com/buzzworthy-beauty-devices-that-are-actually-worth-the-cost/)
+- [tan makeup look](https://makeup.allwomenstalk.com/all-brunettes-will-love-these-stunning-makeup-looks/)
 - [elf eyebrow kit](https://makeup.allwomenstalk.com/literally-the-best-eyebrow-products-if-yours-are-still-not-on-fleek/)
 - [7 Latest Makeup Trends ...](https://makeup.allwomenstalk.com/latest-makeup-trends/)
 - [7 Gorgeous Fall Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/gorgeous-fall-makeup-trends-to-follow/)

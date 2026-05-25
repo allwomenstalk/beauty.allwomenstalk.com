@@ -52,16 +52,16 @@ Too Faced is known for their high quality makeup products with a ultra-girly des
 
 ## Related Posts
 
-- [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
 - [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
-- [Makeup for Darker Skins Catwalk Catastrophe Matthe...](https://allwomenstalk.com/makeup-for-darker-skins-catwalk-catastrophe-matthew-williamson-perfumes/)
-- [mn eyeshadow palette](https://makeup.allwomenstalk.com/iconic-luxury-eyeshadow-palettes/)
+- [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
 - [dominique mandonnaud](https://allwomenstalk.com/sephora-business-model-before-and-after-transformation/)
-- [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
-- [loreal riche le stylo shadow bottomless](https://makeup.allwomenstalk.com/awesome-places-to-buy-makeup-that-arent-sephora/)
+- [everyday look makeup](https://makeup.allwomenstalk.com/must-have-makeup-items-for-that-everyday-look/)
+- [Makeup for Darker Skins Catwalk Catastrophe Matthe...](https://allwomenstalk.com/makeup-for-darker-skins-catwalk-catastrophe-matthew-williamson-perfumes/)
 - [Beauty Beat:  Mascara Madness](https://allwomenstalk.com/beauty-beat-mascara-madness/)
 - [truly beauty sets](https://beauty.allwomenstalk.com/truly-fabulous-beauty-stocking-stuffers-under-25-for-the-girl-on-your-christmas-list/)
-- [everyday look makeup](https://makeup.allwomenstalk.com/must-have-makeup-items-for-that-everyday-look/)
+- [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
+- [loreal riche le stylo shadow bottomless](https://makeup.allwomenstalk.com/awesome-places-to-buy-makeup-that-arent-sephora/)
+- [mn eyeshadow palette](https://makeup.allwomenstalk.com/iconic-luxury-eyeshadow-palettes/)
 - [8 Best Drugstore Beauty Products ...](https://makeup.allwomenstalk.com/best-drugstore-beauty-products-3/)
 - [7 Top Beauty Brands at Sephora ...](https://allwomenstalk.com/7-top-beauty-brands-at-sephora/)
 

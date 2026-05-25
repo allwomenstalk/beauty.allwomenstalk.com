@@ -84,16 +84,16 @@ Beauty devices can cost a pretty penny but in some cases are really worth the in
 
 ## Related Posts
 
-- [waterproof makeup products](https://makeup.allwomenstalk.com/waterproof-makeup-products-for-girls-who-love-the-beach/)
-- [mascara for the beach](https://makeup.allwomenstalk.com/waterproof-mascaras-for-girls-who-basically-live-at-the-beach/)
-- [ladies makeup products](https://makeup.allwomenstalk.com/all-the-best-makeup-products-for-lazy-ladies/)
-- [tan makeup look](https://makeup.allwomenstalk.com/all-brunettes-will-love-these-stunning-makeup-looks/)
-- [elf eyebrow kit](https://makeup.allwomenstalk.com/literally-the-best-eyebrow-products-if-yours-are-still-not-on-fleek/)
-- [perfect eybrows](https://makeup.allwomenstalk.com/these-kits-will-have-your-brows-on-fleek-in-no-time/)
-- [makeupaddict](https://makeup.allwomenstalk.com/gorgeous-looks-every-makeup-addict-must-try/)
 - [makeup strobing](https://makeup.allwomenstalk.com/amazing-highlighters-for-girls-who-cannot-get-enough-of-their-strobing/)
-- [what body wash do celebrities use](https://beauty.allwomenstalk.com/shockingly-cheap-drugstore-beauty-products-celebrities-use/)
+- [mascara for the beach](https://makeup.allwomenstalk.com/waterproof-mascaras-for-girls-who-basically-live-at-the-beach/)
+- [elf eyebrow kit](https://makeup.allwomenstalk.com/literally-the-best-eyebrow-products-if-yours-are-still-not-on-fleek/)
+- [ladies makeup products](https://makeup.allwomenstalk.com/all-the-best-makeup-products-for-lazy-ladies/)
 - [girls wearing makeup](https://beauty.allwomenstalk.com/beauty-and-lifestyle-inspo-from-carlibel-all-makeup-addicts-are-gonna-love/)
+- [what body wash do celebrities use](https://beauty.allwomenstalk.com/shockingly-cheap-drugstore-beauty-products-celebrities-use/)
+- [waterproof makeup products](https://makeup.allwomenstalk.com/waterproof-makeup-products-for-girls-who-love-the-beach/)
+- [makeupaddict](https://makeup.allwomenstalk.com/gorgeous-looks-every-makeup-addict-must-try/)
+- [tan makeup look](https://makeup.allwomenstalk.com/all-brunettes-will-love-these-stunning-makeup-looks/)
+- [perfect eybrows](https://makeup.allwomenstalk.com/these-kits-will-have-your-brows-on-fleek-in-no-time/)
 - [Creative Ways to Pay for Beauty Treatments ...](https://allwomenstalk.com/creative-ways-to-pay-for-beauty-treatments/)
 - [Beauty News ...](https://allwomenstalk.com/beauty-news/)
 

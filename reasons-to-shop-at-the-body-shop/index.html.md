@@ -44,16 +44,16 @@ I hope you can see now why I feel people should shop at The Body Shop. I wish mo
 
 ## Related Posts
 
-- [winter green scrubs](https://skincare.allwomenstalk.com/bye-bye-winter-skin-diy-sugar-scrubs-to-try/)
-- [why handmade soap is best](https://health.allwomenstalk.com/reasons-to-use-handmade-soap/)
-- [selling natural products](https://beauty.allwomenstalk.com/beauty-companies-that-sell-natural-products/)
-- [emmenice](https://skincare.allwomenstalk.com/things-to-know-about-probiotics-in-skincare/)
-- [alpha hydroxy acid skin benefits](https://skincare.allwomenstalk.com/fantastic-benefits-of-alpha-hydroxy-acid-for-my-skin/)
-- [dermascope magazine](https://skincare.allwomenstalk.com/informative-skincare-publications-youre-sure-to-learn-something-from/)
 - [does one size fit all](https://skincare.allwomenstalk.com/reasons-why-skincare-isnt-one-size-fits-all/)
 - [homemade oil cleanser](https://beauty.allwomenstalk.com/homemade-beauty-products-for-top-to-toe-tlc/)
+- [selling natural products](https://beauty.allwomenstalk.com/beauty-companies-that-sell-natural-products/)
+- [emmenice](https://skincare.allwomenstalk.com/things-to-know-about-probiotics-in-skincare/)
+- [winter green scrubs](https://skincare.allwomenstalk.com/bye-bye-winter-skin-diy-sugar-scrubs-to-try/)
+- [dermascope magazine](https://skincare.allwomenstalk.com/informative-skincare-publications-youre-sure-to-learn-something-from/)
 - [shaving gel substitute](https://beauty.allwomenstalk.com/products-that-are-great-alternatives-to-shaving-cream/)
+- [alpha hydroxy acid skin benefits](https://skincare.allwomenstalk.com/fantastic-benefits-of-alpha-hydroxy-acid-for-my-skin/)
 - [what you need for a relaxing bath](https://beauty.allwomenstalk.com/essentials-for-a-perfect-and-relaxing-bath/)
+- [why handmade soap is best](https://health.allwomenstalk.com/reasons-to-use-handmade-soap/)
 - [7 Ethical and Logical Reasons to Use Organic Skinc...](https://skincare.allwomenstalk.com/ethical-and-logical-reasons-to-use-organic-skincare-products/)
 - [9 Reasons to Buy Nu Skin Galvanik Spa ...](https://allwomenstalk.com/10-reasons-to-buy-nu-skin-galvanik-spa/)
 

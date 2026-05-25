@@ -56,16 +56,16 @@ These’re 7 beauty resolutions that’ll make you look better than ever. Do any
 
 ## Related Posts
 
-- [you look great mirror](https://beauty.allwomenstalk.com/mirror-hacks-thatll-make-you-feel-more-beautiful/)
-- [how to keep eyes looking young](https://beauty.allwomenstalk.com/heres-how-to-keep-your-eyes-looking-young/)
-- [how to make selfies look better](https://beauty.allwomenstalk.com/little-tweaks-to-make-your-selfies-look-more-natural/)
-- [ready for my close up foundation](https://skincare.allwomenstalk.com/tips-to-get-your-skin-ready-for-a-sexy-close-up/)
-- [how to boost confidence quickly](https://inspiration.allwomenstalk.com/boost-your-confidence-with-these-quick-tricks/)
-- [best selfie techniques](https://beauty.allwomenstalk.com/selfie-tips-from-a-professional-model/)
-- [how to look not ugly](https://beauty.allwomenstalk.com/things-that-can-fool-you-into-feeling-ugly/)
 - [how to become elegant and graceful](https://beauty.allwomenstalk.com/so-you-want-to-be-elegant-and-graceful-heres-how/)
-- [you look seductive](https://love.allwomenstalk.com/subtle-ways-to-look-sexy-without-trying-too-hard/)
 - [you always look so put together](https://fashion.allwomenstalk.com/ways-to-always-look-perfectly-put-together/)
+- [how to keep eyes looking young](https://beauty.allwomenstalk.com/heres-how-to-keep-your-eyes-looking-young/)
+- [ready for my close up foundation](https://skincare.allwomenstalk.com/tips-to-get-your-skin-ready-for-a-sexy-close-up/)
+- [you look seductive](https://love.allwomenstalk.com/subtle-ways-to-look-sexy-without-trying-too-hard/)
+- [how to make selfies look better](https://beauty.allwomenstalk.com/little-tweaks-to-make-your-selfies-look-more-natural/)
+- [best selfie techniques](https://beauty.allwomenstalk.com/selfie-tips-from-a-professional-model/)
+- [you look great mirror](https://beauty.allwomenstalk.com/mirror-hacks-thatll-make-you-feel-more-beautiful/)
+- [how to look not ugly](https://beauty.allwomenstalk.com/things-that-can-fool-you-into-feeling-ugly/)
+- [how to boost confidence quickly](https://inspiration.allwomenstalk.com/boost-your-confidence-with-these-quick-tricks/)
 - [9 Ways to Wake up Beautiful Every Morning ...](https://beauty.allwomenstalk.com/ways-to-wake-up-beautiful-every-morning/)
 - [9 Easy Daily Tips to Enhance Your Natural Beauty ....](https://beauty.allwomenstalk.com/easy-daily-tips-to-enhance-your-natural-beauty/)
 

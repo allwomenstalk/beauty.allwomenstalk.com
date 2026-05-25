@@ -121,15 +121,15 @@ What did you think of these beauty products? Let us know in the comments!
 ## Related Posts
 
 - [must haves for festivals](https://beauty.allwomenstalk.com/beauty-must-haves-for-music-festivals/)
+- [dessert palette](https://makeup.allwomenstalk.com/dessert-inspired-eyeshadow-palettes/)
 - [kylie jenner skincare products](https://skincare.allwomenstalk.com/beauty-products-kylie-jenner-uses/)
 - [best affordable highlighters](https://makeup.allwomenstalk.com/affordable-highlighters-under-30/)
-- [color riche stylo smoky timeless spark](https://beauty.allwomenstalk.com/best-budget-beauty-brands/)
 - [fun makeup products](https://makeup.allwomenstalk.com/best-natural-makeup-products/)
 - [chola makeup](https://makeup.allwomenstalk.com/the-history-of-cosmetics/)
-- [dessert palette](https://makeup.allwomenstalk.com/dessert-inspired-eyeshadow-palettes/)
+- [what all do you need for makeup](https://makeup.allwomenstalk.com/basic-makeup-essentials-for-beginners/)
+- [color riche stylo smoky timeless spark](https://beauty.allwomenstalk.com/best-budget-beauty-brands/)
 - [sephora volcanic sand scrub](https://skincare.allwomenstalk.com/best-skincare-products-at-sephora/)
 - [kylie jenner funny picture](https://makeup.allwomenstalk.com/facts-about-kylie-jenners-cosmetic-business/)
-- [what all do you need for makeup](https://makeup.allwomenstalk.com/basic-makeup-essentials-for-beginners/)
 - [5 Tried and Tested Beauty Products to Have on Your...](https://allwomenstalk.com/5-tried-and-tested-beauty-products-to-have-on-your-vanity/)
 - [7 Must-Have Beauty Products to Keep at Work ...](https://beauty.allwomenstalk.com/must-have-beauty-products-to-keep-at-work/)
 

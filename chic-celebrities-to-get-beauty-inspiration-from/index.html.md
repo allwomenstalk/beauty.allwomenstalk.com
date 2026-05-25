@@ -74,16 +74,16 @@ Have you ever looked to any of these chic celebrities for makeup inspiration? I 
 
 ## Related Posts
 
-- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
 - [girl celeb crushes](https://movies.allwomenstalk.com/celebrity-girl-crushes-on-tv/)
-- [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
-- [famous celebrity haircuts](https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/)
-- [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
 - [famous couples in tv](https://movies.allwomenstalk.com/of-the-best-tv-couples/)
-- [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
-- [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
 - [hot irish actor](https://celebs.allwomenstalk.com/most-talented-irish-actors/)
 - [famous person who learned from their mistakes](https://celebs.allwomenstalk.com/celebrities-who-blew-it-and-how-not-to-repeat-their-mistakes/)
+- [role models for teenagers](https://celebs.allwomenstalk.com/best-tv-teen-role-models/)
+- [big easy baddies](https://movies.allwomenstalk.com/top-tv-baddies-we-love/)
+- [famous eccentric person](https://celebs.allwomenstalk.com/most-eccentric-pop-stars/)
+- [famous tv show families](https://movies.allwomenstalk.com/famous-tv-families/)
+- [ed begley jnr](https://celebs.allwomenstalk.com/celebrities-who-care-about-the-environment/)
+- [famous celebrity haircuts](https://celebs.allwomenstalk.com/shocking-celebrity-haircuts/)
 - [15 Ways to Look Beautiful without Makeup ...](https://makeup.allwomenstalk.com/ways-to-look-beautiful-without-makeup/)
 - [9 Fool Proof Celebrity Beauty Tricks ...](https://beauty.allwomenstalk.com/fool-proof-celebrity-beauty-tricks/)
 

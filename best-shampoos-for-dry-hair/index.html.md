@@ -30,16 +30,16 @@ This shampoo not only smells amazing, but it also leaves hair feeling incredibly
 
 ## Related Posts
 
-- [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
-- [conditioner for color hair](https://hair.allwomenstalk.com/best-conditioners-for-color-treated-hair/)
-- [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
-- [best moroccanoil for hair](https://hair.allwomenstalk.com/the-best-hair-oils/)
-- [transitioning hairstyles](https://hair.allwomenstalk.com/more-natural-and-transitioning-hair-terms/)
-- [aveda shampoo deals](https://hair.allwomenstalk.com/great-shampoos-and-conditioners-for-fine-hair/)
 - [elle painless hair remover](https://beauty.allwomenstalk.com/best-hair-removal-tools/)
-- [worst products for hair](https://hair.allwomenstalk.com/of-the-worst-hair-products-ever/)
-- [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
+- [hair cream dry hair](https://hair.allwomenstalk.com/best-hair-creams-to-use-if-you-have-thick-dry-or-coarse-hair/)
+- [easy hair tools](https://hair.allwomenstalk.com/must-have-hair-tools-for-every-woman/)
+- [transitioning hairstyles](https://hair.allwomenstalk.com/more-natural-and-transitioning-hair-terms/)
 - [best shampoo color treated](https://hair.allwomenstalk.com/the-best-shampoos-for-color-treated-hair/)
+- [where to buy lush hair products](https://hair.allwomenstalk.com/hair-care-products-from-lush-for-the-perfect-hair-day/)
+- [conditioner for color hair](https://hair.allwomenstalk.com/best-conditioners-for-color-treated-hair/)
+- [worst products for hair](https://hair.allwomenstalk.com/of-the-worst-hair-products-ever/)
+- [best moroccanoil for hair](https://hair.allwomenstalk.com/the-best-hair-oils/)
+- [aveda shampoo deals](https://hair.allwomenstalk.com/great-shampoos-and-conditioners-for-fine-hair/)
 - [7 Excellent Products for Frizzy Hair ...](https://hair.allwomenstalk.com/excellent-products-for-frizzy-hair/)
 - [15 Best Shampoos for Girls with Oily Hair ...](https://allwomenstalk.com/12-best-shampoos-for-oily-hair/)
 

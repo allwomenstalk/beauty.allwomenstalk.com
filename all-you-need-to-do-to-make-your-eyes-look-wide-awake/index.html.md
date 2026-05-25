@@ -44,14 +44,14 @@ How do you look wide awake after a late night? Think you’ll try any of these t
 
 - [nose lashes](https://beauty.allwomenstalk.com/things-you-need-to-do-for-long-lashes/)
 - [makeup techniques](https://makeup.allwomenstalk.com/how-to-practice-and-perfect-your-makeup-techniques/)
-- [riche le stylo smoky shadow primped and previous](https://makeup.allwomenstalk.com/how-to-wear-smokey-eyes-as-told-by-celebs/)
-- [make up colorful](https://makeup.allwomenstalk.com/gorgeous-ways-to-add-some-color-to-your-face/)
 - [infographic about makeup](https://makeup.allwomenstalk.com/youll-be-blown-away-by-these-makeup-infographics/)
 - [how to use color oops](https://hair.allwomenstalk.com/dont-panic-heres-how-to-fix-that-bad-hair-color/)
+- [riche stylo always pearly](https://makeup.allwomenstalk.com/secrets-girls-with-gorgeous-makeup-wont-tell-you/)
+- [riche le stylo smoky shadow primped and previous](https://makeup.allwomenstalk.com/how-to-wear-smokey-eyes-as-told-by-celebs/)
+- [loreal color riche le stylo eye shadow vegas](https://makeup.allwomenstalk.com/how-to-look-drop-dead-gorgeous-in-your-matte-makeup/)
+- [make up colorful](https://makeup.allwomenstalk.com/gorgeous-ways-to-add-some-color-to-your-face/)
 - [makeup for red dress black girl](https://makeup.allwomenstalk.com/makeup-looks-for-low-maintenance-girls/)
 - [learn how to do your makeup](https://makeup.allwomenstalk.com/a-video-for-women-who-have-never-learned-how-to-do-makeup/)
-- [riche stylo always pearly](https://makeup.allwomenstalk.com/secrets-girls-with-gorgeous-makeup-wont-tell-you/)
-- [loreal color riche le stylo eye shadow vegas](https://makeup.allwomenstalk.com/how-to-look-drop-dead-gorgeous-in-your-matte-makeup/)
 - [8 Items You Need to Create Dramatic Eyes ...](https://makeup.allwomenstalk.com/8-items-you-need-to-create-dramatic-eyes/)
 - [7 Makeup Tricks for Larger Eyes ...](https://makeup.allwomenstalk.com/makeup-tricks-for-larger-eyes/)
 

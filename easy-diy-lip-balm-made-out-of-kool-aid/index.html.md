@@ -24,16 +24,16 @@ Thank you!
 
 ## Related Posts
 
-- [diy christmas candy jar ideas](https://diy.allwomenstalk.com/how-to-make-a-festive-christmas-candy-jar/)
-- [color stylo blinged and brilliant](https://diy.allwomenstalk.com/video-tutorial-to-create-a-lemon-jar-centerpiece/)
-- [cupcake wrapper wreath](https://diy.allwomenstalk.com/adorable-diy-cupcake-liner-wreath/)
 - [diy designer books](https://diy.allwomenstalk.com/designer-magazine-bookmarks-you-can-make-for-a-quick-diy-project/)
-- [wreath bags](https://diy.allwomenstalk.com/easy-plastic-sandwich-bag-wreath-tutorial/)
-- [planting succulents in glass jars](https://gardening.allwomenstalk.com/diy-mason-jar-succulents-hgtv-handmade/)
-- [diy christmas mugs](https://diy.allwomenstalk.com/diy-christmas-gift-mugs-on-the-cheap/)
-- [whimsical snowman](https://diy.allwomenstalk.com/how-to-make-a-cute-snowman-wreath/)
+- [color stylo blinged and brilliant](https://diy.allwomenstalk.com/video-tutorial-to-create-a-lemon-jar-centerpiece/)
 - [crate bench](https://diy.allwomenstalk.com/diy-furniture-making-a-crate-bench-on-a-budget/)
+- [diy christmas mugs](https://diy.allwomenstalk.com/diy-christmas-gift-mugs-on-the-cheap/)
+- [planting succulents in glass jars](https://gardening.allwomenstalk.com/diy-mason-jar-succulents-hgtv-handmade/)
 - [unbelievably gorgeous](https://diy.allwomenstalk.com/unbelievably-gorgeous-diy-flower-wreath/)
+- [whimsical snowman](https://diy.allwomenstalk.com/how-to-make-a-cute-snowman-wreath/)
+- [diy christmas candy jar ideas](https://diy.allwomenstalk.com/how-to-make-a-festive-christmas-candy-jar/)
+- [wreath bags](https://diy.allwomenstalk.com/easy-plastic-sandwich-bag-wreath-tutorial/)
+- [cupcake wrapper wreath](https://diy.allwomenstalk.com/adorable-diy-cupcake-liner-wreath/)
 - [7 Homemade Popsicles Your Kids Will Adore ...](https://cooking.allwomenstalk.com/homemade-popsicles-your-kids-will-adore/)
 - [7 Homemade Lip Balms to Try ...](https://makeup.allwomenstalk.com/homemade-lip-balms-to-try/)
 

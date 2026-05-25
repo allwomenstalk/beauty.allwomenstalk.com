@@ -48,16 +48,16 @@ Top Image Source: _photoshootbloger.blogspot.in_
 
 ## Related Posts
 
-- [woman beauty tips](https://beauty.allwomenstalk.com/unique-beauty-tips-from-famous-women-in-history/)
-- [james bond hairstyle for ladies](https://beauty.allwomenstalk.com/beauty-lessons-to-learn-from-the-bond-girls/)
-- [model beauty secrets](https://beauty.allwomenstalk.com/strange-beauty-tips-that-work/)
-- [pinterest you have a good eye](https://beauty.allwomenstalk.com/best-beauty-tips-from-pinterest-that-youve-got-to-see/)
-- [lunch break beauty](https://beauty.allwomenstalk.com/quick-beauty-treatments-you-can-do-on-your-lunch-break/)
 - [hiw to look good](https://makeup.allwomenstalk.com/beauty-tips-for-pre-teens-to-look-pretty-without-makeup/)
+- [lunch break beauty](https://beauty.allwomenstalk.com/quick-beauty-treatments-you-can-do-on-your-lunch-break/)
 - [makeup mistakes that age you](https://beauty.allwomenstalk.com/beauty-mistakes-that-age-you/)
-- [parents of o positive blood type](https://beauty.allwomenstalk.com/beauty-tips-according-to-your-blood-type/)
-- [beauty etiquette](https://beauty.allwomenstalk.com/fine-pointers-on-beauty-etiquette/)
 - [benefit she laq](https://beauty.allwomenstalk.com/essential-halloween-beauty-tips/)
+- [james bond hairstyle for ladies](https://beauty.allwomenstalk.com/beauty-lessons-to-learn-from-the-bond-girls/)
+- [beauty etiquette](https://beauty.allwomenstalk.com/fine-pointers-on-beauty-etiquette/)
+- [model beauty secrets](https://beauty.allwomenstalk.com/strange-beauty-tips-that-work/)
+- [parents of o positive blood type](https://beauty.allwomenstalk.com/beauty-tips-according-to-your-blood-type/)
+- [woman beauty tips](https://beauty.allwomenstalk.com/unique-beauty-tips-from-famous-women-in-history/)
+- [pinterest you have a good eye](https://beauty.allwomenstalk.com/best-beauty-tips-from-pinterest-that-youve-got-to-see/)
 - [9 Fool Proof Celebrity Beauty Tricks ...](https://beauty.allwomenstalk.com/fool-proof-celebrity-beauty-tricks/)
 - [10 Make-up Tips from Celebrities ...](https://fashion.allwomenstalk.com/10-make-up-tips-from-celebrities/)
 

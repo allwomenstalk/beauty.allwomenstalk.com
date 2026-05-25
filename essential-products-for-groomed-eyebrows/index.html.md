@@ -56,14 +56,14 @@ I couldn't live without my eyebrow tools. I'm especially loving the tint and set
 
 ## Related Posts
 
-- [lush makeup products](https://makeup.allwomenstalk.com/magical-lush-makeup-products-that-will-make-you-look-gorgeous/)
-- [what is bronze skin tone](https://makeup.allwomenstalk.com/cosmetics-that-look-good-on-every-skin-tone-and-colour/)
-- [best mascara for thickness and volume](https://makeup.allwomenstalk.com/best-mascaras-under-20-thatll-leave-your-lashes-looking-fantastic/)
 - [bargain make up](https://beauty.allwomenstalk.com/new-bargain-beauty-buys-to-snag-now/)
 - [best drugstore bronzers uk](https://makeup.allwomenstalk.com/decadent-drugstore-bronzers-that-will-change-your-life/)
-- [cosmetics for girl](https://makeup.allwomenstalk.com/best-makeup-products-for-teens/)
-- [good elf products](https://makeup.allwomenstalk.com/fabulous-e-l-f-cosmetics-products-you-need-in-your-makeup-bag/)
 - [blush drug store](https://makeup.allwomenstalk.com/best-drugstore-blushes-that-wont-break-the-bank/)
+- [good elf products](https://makeup.allwomenstalk.com/fabulous-e-l-f-cosmetics-products-you-need-in-your-makeup-bag/)
+- [best mascara for thickness and volume](https://makeup.allwomenstalk.com/best-mascaras-under-20-thatll-leave-your-lashes-looking-fantastic/)
+- [what is bronze skin tone](https://makeup.allwomenstalk.com/cosmetics-that-look-good-on-every-skin-tone-and-colour/)
+- [lush makeup products](https://makeup.allwomenstalk.com/magical-lush-makeup-products-that-will-make-you-look-gorgeous/)
+- [cosmetics for girl](https://makeup.allwomenstalk.com/best-makeup-products-for-teens/)
 - [drugstore foundation](https://makeup.allwomenstalk.com/dynamite-drugstore-foundations-to-check-out/)
 - [essential beauty products for every girl](https://beauty.allwomenstalk.com/beauty-items-every-girl-needs-in-her-makeup-bag/)
 - [7 Excellent Eyebrow Grooming Products ...](https://makeup.allwomenstalk.com/7-excellent-eyebrow-grooming-products/)

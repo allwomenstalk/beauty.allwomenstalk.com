@@ -360,14 +360,14 @@ Soap dispensers can be little works of art for your sink or vanity. Any here you
 
 ## Related Posts
 
-- [pantry and laundry room combo](https://diy.allwomenstalk.com/heres-what-your-laundry-room-should-look-like/)
 - [uses of kitchen scissors](https://food.allwomenstalk.com/great-uses-for-kitchen-shears/)
-- [weekend cleaning service](https://diy.allwomenstalk.com/ways-to-not-spend-the-whole-weekend-cleaning-when-you-work-all-week/)
-- [makeshift iron](https://diy.allwomenstalk.com/no-iron-no-stress-ways-to-remove-wrinkles-from-clothes/)
 - [chicken caesar salad mason jar recipe](https://food.allwomenstalk.com/reasons-to-keep-a-few-mason-jars-in-your-cupboard/)
+- [weekend cleaning service](https://diy.allwomenstalk.com/ways-to-not-spend-the-whole-weekend-cleaning-when-you-work-all-week/)
+- [pantry and laundry room combo](https://diy.allwomenstalk.com/heres-what-your-laundry-room-should-look-like/)
+- [organizing shelves with baskets](https://diy.allwomenstalk.com/storage-baskets-that-will-make-you-want-to-organize-your-whole-house/)
 - [lint roller use](https://diy.allwomenstalk.com/great-ways-to-use-lint-rollers-around-the-house/)
 - [lazy life hacks](https://lifestyle.allwomenstalk.com/life-hacks-you-must-know-if-youre-lazy/)
-- [organizing shelves with baskets](https://diy.allwomenstalk.com/storage-baskets-that-will-make-you-want-to-organize-your-whole-house/)
+- [makeshift iron](https://diy.allwomenstalk.com/no-iron-no-stress-ways-to-remove-wrinkles-from-clothes/)
 - [spotless results](https://lifestyle.allwomenstalk.com/all-it-takes-is-minutes-a-day-results-a-spotless-place-to-call-home/)
 - [scotch tape for eye makeup](https://fashion.allwomenstalk.com/unbelievably-useful-scotch-tape-hacks-for-common-fashion-problems/)
 - [8 Zany Cleaning Utilities ...](https://lifestyle.allwomenstalk.com/zany-cleaning-utilities/)

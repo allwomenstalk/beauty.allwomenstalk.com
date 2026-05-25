@@ -56,12 +56,12 @@ Let’s see how the recent set of beauty queen fare in five to 10 years. Will th
 
 ## Related Posts
 
+- [curvy female athletes](https://fitness.allwomenstalk.com/of-the-fittest-women-in-the-world-and-how-they-achieved-this-status/)
+- [different definitions of feminism](https://inspiration.allwomenstalk.com/different-definitions-of-feminism-that-will-empower-you/)
 - [fangirl things](https://movies.allwomenstalk.com/different-types-of-fangirls-you-will-encounter/)
 - [octogenarian woman](https://inspiration.allwomenstalk.com/absolutely-admirable-octogenarian-women/)
-- [different definitions of feminism](https://inspiration.allwomenstalk.com/different-definitions-of-feminism-that-will-empower-you/)
-- [why we need feminism](https://lifestyle.allwomenstalk.com/recent-events-that-show-us-why-we-still-need-feminism/)
-- [curvy female athletes](https://fitness.allwomenstalk.com/of-the-fittest-women-in-the-world-and-how-they-achieved-this-status/)
 - [thoughts on feminism](https://lifestyle.allwomenstalk.com/thoughts-about-feminism-that-are-perfectly-fine/)
+- [why we need feminism](https://lifestyle.allwomenstalk.com/recent-events-that-show-us-why-we-still-need-feminism/)
 - [What These Women Can do with a Soccer Ball Will Bl...](https://inspiration.allwomenstalk.com/what-these-women-can-do-with-a-soccer-ball-will-blow-your-mind/)
 - [top characters in game of thrones](https://movies.allwomenstalk.com/most-fabulous-female-characters-in-game-of-thrones/)
 - [maritoni fernandez cancer survivor](https://health.allwomenstalk.com/inspiring-breast-cancer-survivors/)

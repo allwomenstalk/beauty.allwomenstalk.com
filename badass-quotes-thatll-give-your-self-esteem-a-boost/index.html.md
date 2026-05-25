@@ -54,16 +54,16 @@ Which of these quotes is your favourite? Which quote would you add?
 
 ## Related Posts
 
-- [saying about reading](https://books.allwomenstalk.com/these-quotes-will-motivate-you-to-read/)
-- [jim carrey speeches](https://inspiration.allwomenstalk.com/the-most-inspirational-college-commencement-speeches/)
-- [shakespeare love quotes sonnets](https://love.allwomenstalk.com/what-shakespeare-had-to-say-about-love/)
 - [collateral damage quotes](https://celebs.allwomenstalk.com/these-ricky-gervais-quotes-prove-hes-the-greatest/)
-- [john green wuotes](https://love.allwomenstalk.com/sweet-john-green-quotes-about-love/)
-- [all we have is who we are meaning](https://inspiration.allwomenstalk.com/quotes-to-inspire-you-right-now/)
-- [calming down quotes](https://inspiration.allwomenstalk.com/quotes-to-calm-you-down-whenever-youre-pissed/)
-- [a quote from lupita nyongo](https://celebs.allwomenstalk.com/inspirational-quotes-from-the-lovely-lupita-nyongo/)
+- [jim carrey speeches](https://inspiration.allwomenstalk.com/the-most-inspirational-college-commencement-speeches/)
 - [broad city quote](https://funny.allwomenstalk.com/broad-city-quotes-about-life-we-can-totally-relate-to/)
 - [deep sad poems](https://inspiration.allwomenstalk.com/poems-thatll-express-the-feelings-youve-struggled-to-deal-with/)
+- [calming down quotes](https://inspiration.allwomenstalk.com/quotes-to-calm-you-down-whenever-youre-pissed/)
+- [shakespeare love quotes sonnets](https://love.allwomenstalk.com/what-shakespeare-had-to-say-about-love/)
+- [saying about reading](https://books.allwomenstalk.com/these-quotes-will-motivate-you-to-read/)
+- [john green wuotes](https://love.allwomenstalk.com/sweet-john-green-quotes-about-love/)
+- [a quote from lupita nyongo](https://celebs.allwomenstalk.com/inspirational-quotes-from-the-lovely-lupita-nyongo/)
+- [all we have is who we are meaning](https://inspiration.allwomenstalk.com/quotes-to-inspire-you-right-now/)
 - [50 Quotes to Empower and Inspire Women ...](https://lifestyle.allwomenstalk.com/quotes-to-empower-and-inspire-women/)
 - [10 Favorite Quotes ...](https://allwomenstalk.com/10-favorite-quotes/)
 

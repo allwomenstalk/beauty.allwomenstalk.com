@@ -56,16 +56,16 @@ Would you try any of these indulgent beauty products? They might seem a little e
 
 ## Related Posts
 
-- [b2b sales software for beauty products](https://beauty.allwomenstalk.com/direct-sales-companies-to-work-for-if-you-have-a-passion-for-beauty-products/)
-- [most expensive beauty products](https://beauty.allwomenstalk.com/of-the-most-expensive-beauty-products-on-the-market/)
-- [expensive beauty products](https://makeup.allwomenstalk.com/ridiculously-expensive-cosmetics-you-wont-believe-actually-exist/)
-- [the most expensive mascara in the world](https://makeup.allwomenstalk.com/expensive-mascaras-that-are-totally-worth-the-price-tag/)
-- [paris palette primped and previous](https://makeup.allwomenstalk.com/super-affordable-eye-shadow-palettes-youll-love/)
 - [holiday makeup must haves](https://makeup.allwomenstalk.com/makeup-must-haves-when-youre-on-a-holiday/)
-- [what makeup colors should i wear](https://makeup.allwomenstalk.com/must-have-eye-shadow-colors-that-every-girl-needs/)
+- [b2b sales software for beauty products](https://beauty.allwomenstalk.com/direct-sales-companies-to-work-for-if-you-have-a-passion-for-beauty-products/)
 - [best spring beauty buys](https://makeup.allwomenstalk.com/superb-spring-beauty-products-youll-want-to-hoard/)
 - [best concealer for acne scars and blemishes drugst...](https://makeup.allwomenstalk.com/best-drugstore-concealers-you-need-to-get-your-hands-on/)
+- [paris palette primped and previous](https://makeup.allwomenstalk.com/super-affordable-eye-shadow-palettes-youll-love/)
 - [paris palette primped and](https://makeup.allwomenstalk.com/must-have-makeup-palettes-for-summer/)
+- [the most expensive mascara in the world](https://makeup.allwomenstalk.com/expensive-mascaras-that-are-totally-worth-the-price-tag/)
+- [most expensive beauty products](https://beauty.allwomenstalk.com/of-the-most-expensive-beauty-products-on-the-market/)
+- [what makeup colors should i wear](https://makeup.allwomenstalk.com/must-have-eye-shadow-colors-that-every-girl-needs/)
+- [expensive beauty products](https://makeup.allwomenstalk.com/ridiculously-expensive-cosmetics-you-wont-believe-actually-exist/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 - [7 New Make up Products Youll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 

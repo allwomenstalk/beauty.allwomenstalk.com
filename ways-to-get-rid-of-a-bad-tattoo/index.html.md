@@ -42,16 +42,16 @@ Those are all the ways I know of to get rid of a bad tattoo… if you have ink y
 
 ## Related Posts
 
-- [ocean potion with lidocaine](https://skincare.allwomenstalk.com/sure-fire-ways-to-deal-with-sunburn/)
 - [pregnant women candle](https://parenting.allwomenstalk.com/remedies-for-morning-sickness/)
-- [anti yeast foods](https://food.allwomenstalk.com/unique-foods-to-fight-off-candida-yeast-in-the-body-fast/)
-- [does vinegar help sunburn](https://skincare.allwomenstalk.com/soothing-and-natural-ways-to-relieve-sunburn/)
 - [ideas to drink more water](https://health.allwomenstalk.com/ways-to-drink-more-water/)
-- [herbs for yeast overgrowth](https://health.allwomenstalk.com/magical-herbs-to-fight-yeast-in-the-body/)
-- [whole foods rescue remedy](https://health.allwomenstalk.com/bach-flower-remedies-groups-and-remedy-options/)
 - [what can make your teeth whiter](https://beauty.allwomenstalk.com/natural-ways-to-whiten-your-teeth/)
-- [seaweed baths for weight loss](https://health.allwomenstalk.com/incredible-natural-ways-to-fight-cellulite/)
 - [lemon and baking soda for acne](https://beauty.allwomenstalk.com/home-remedies-for-acne/)
+- [whole foods rescue remedy](https://health.allwomenstalk.com/bach-flower-remedies-groups-and-remedy-options/)
+- [anti yeast foods](https://food.allwomenstalk.com/unique-foods-to-fight-off-candida-yeast-in-the-body-fast/)
+- [seaweed baths for weight loss](https://health.allwomenstalk.com/incredible-natural-ways-to-fight-cellulite/)
+- [herbs for yeast overgrowth](https://health.allwomenstalk.com/magical-herbs-to-fight-yeast-in-the-body/)
+- [does vinegar help sunburn](https://skincare.allwomenstalk.com/soothing-and-natural-ways-to-relieve-sunburn/)
+- [ocean potion with lidocaine](https://skincare.allwomenstalk.com/sure-fire-ways-to-deal-with-sunburn/)
 - [7 Ways to Treat a Sunburn ...](https://skincare.allwomenstalk.com/ways-to-treat-a-sunburn/)
 - [7 Ways to Cope with a Bad Haircut ...](https://hair.allwomenstalk.com/ways-to-cope-wih-a-bad-haircut/)
 

@@ -91,16 +91,16 @@ Will you be getting into the St. Patrick’s Day spirit with these beauty produc
 
 ## Related Posts
 
-- [everyday look makeup](https://makeup.allwomenstalk.com/must-have-makeup-items-for-that-everyday-look/)
-- [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
-- [dominique mandonnaud](https://allwomenstalk.com/sephora-business-model-before-and-after-transformation/)
-- [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
+- [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
 - [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
 - [can you wear makeup in middle school](https://makeup.allwomenstalk.com/makeup-products-for-middle-school-girls-to-wear/)
-- [truly beauty sets](https://beauty.allwomenstalk.com/truly-fabulous-beauty-stocking-stuffers-under-25-for-the-girl-on-your-christmas-list/)
-- [loreal riche le stylo shadow bottomless](https://makeup.allwomenstalk.com/awesome-places-to-buy-makeup-that-arent-sephora/)
 - [mn eyeshadow palette](https://makeup.allwomenstalk.com/iconic-luxury-eyeshadow-palettes/)
-- [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
+- [best cbd beauty products](https://beauty.allwomenstalk.com/cbd-beauty-products-worth-your-attention/)
+- [truly beauty sets](https://beauty.allwomenstalk.com/truly-fabulous-beauty-stocking-stuffers-under-25-for-the-girl-on-your-christmas-list/)
+- [fresh beauty headquarters](https://lifestyle.allwomenstalk.com/beauty-brand-headquarters-with-exquisite-interior-designs/)
+- [loreal riche le stylo shadow bottomless](https://makeup.allwomenstalk.com/awesome-places-to-buy-makeup-that-arent-sephora/)
+- [dominique mandonnaud](https://allwomenstalk.com/sephora-business-model-before-and-after-transformation/)
+- [everyday look makeup](https://makeup.allwomenstalk.com/must-have-makeup-items-for-that-everyday-look/)
 - [7 Marvelous Beauty Products by Amala ...](https://skincare.allwomenstalk.com/7-marvelous-beauty-products-by-amala/)
 - [New Beauty Products to Play with ...](https://allwomenstalk.com/new-beauty-products-to-play-with/)
 

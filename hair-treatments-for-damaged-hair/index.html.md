@@ -54,16 +54,16 @@ There are tons of DIY hair treatments out there and many are inexpensive, easy, 
 
 ## Related Posts
 
-- [what hair product should i use woman](https://hair.allwomenstalk.com/top-hair-products-of-every-woman-should-own/)
-- [hair gadgets for long hair](https://hair.allwomenstalk.com/fantastic-hair-gadgets-youll-love/)
-- [no heat curls](https://hair.allwomenstalk.com/awesome-products-to-help-you-get-gorgeous-curls-without-using-heat/)
-- [chemicals in hair products to avoid](https://hair.allwomenstalk.com/commonly-used-chemicals-your-hair-is-better-off-without/)
-- [mushroom for hair loss](https://hair.allwomenstalk.com/plants-that-promote-hair-growth/)
-- [chi hair oil](https://hair.allwomenstalk.com/highly-praised-products-for-relaxed-hair/)
 - [natural hair shine treatment](https://hair.allwomenstalk.com/great-and-effective-treatments-for-glossy-hair/)
-- [home made hair shampoo](https://hair.allwomenstalk.com/fantastic-natural-homemade-shampoos/)
-- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
+- [mushroom for hair loss](https://hair.allwomenstalk.com/plants-that-promote-hair-growth/)
 - [best diy hair conditioner](https://hair.allwomenstalk.com/fantastic-homemade-hair-conditioners-to-try/)
+- [chemicals in hair products to avoid](https://hair.allwomenstalk.com/commonly-used-chemicals-your-hair-is-better-off-without/)
+- [no heat curls](https://hair.allwomenstalk.com/awesome-products-to-help-you-get-gorgeous-curls-without-using-heat/)
+- [hair gadgets for long hair](https://hair.allwomenstalk.com/fantastic-hair-gadgets-youll-love/)
+- [home made hair shampoo](https://hair.allwomenstalk.com/fantastic-natural-homemade-shampoos/)
+- [what hair product should i use woman](https://hair.allwomenstalk.com/top-hair-products-of-every-woman-should-own/)
+- [chi hair oil](https://hair.allwomenstalk.com/highly-praised-products-for-relaxed-hair/)
+- [is coconut oil a good heat protectant for hair](https://hair.allwomenstalk.com/natural-heat-protectants-your-hair-will-love/)
 - [8 Things That Damage Hair ...](https://hair.allwomenstalk.com/8-things-that-damage-hair/)
 - [8 Damaged Hair Treatments to Improve Your Tresses ...](https://hair.allwomenstalk.com/damaged-hair-treatments-to-improve-your-tresses/)
 

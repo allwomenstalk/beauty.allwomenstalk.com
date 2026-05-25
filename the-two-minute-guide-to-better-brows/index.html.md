@@ -30,16 +30,16 @@ Does your brow routine look anything like this?
 
 ## Related Posts
 
+- [mascara tips for beginners](https://makeup.allwomenstalk.com/mascara-for-beginners/)
+- [what to use beauty blender for](https://makeup.allwomenstalk.com/how-to-use-a-beauty-blender-for-flawless-foundation/)
+- [check cosmetic fake](https://makeup.allwomenstalk.com/ways-to-check-if-your-makeup-is-counterfeit/)
+- [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
 - [how to look high with makeup](https://makeup.allwomenstalk.com/how-to-use-makeup-to-look-more-approachable/)
 - [funny makeup mistakes](https://makeup.allwomenstalk.com/funny-makeup-fails/)
-- [mascara tips for beginners](https://makeup.allwomenstalk.com/mascara-for-beginners/)
-- [check cosmetic fake](https://makeup.allwomenstalk.com/ways-to-check-if-your-makeup-is-counterfeit/)
-- [what to use beauty blender for](https://makeup.allwomenstalk.com/how-to-use-a-beauty-blender-for-flawless-foundation/)
-- [makeup on point](https://makeup.allwomenstalk.com/second-makeup-tweaks/)
-- [flawless genius](https://makeup.allwomenstalk.com/tips-for-applying-your-concealer-flawlessly/)
-- [color le stylo bottomless](https://makeup.allwomenstalk.com/fab-makeup-tutorials-to-create-fake-freckles/)
 - [pink preppy makeup](https://makeup.allwomenstalk.com/makeup-thatll-make-you-look-preppy/)
+- [color le stylo bottomless](https://makeup.allwomenstalk.com/fab-makeup-tutorials-to-create-fake-freckles/)
 - [daytime date makeup](https://makeup.allwomenstalk.com/how-to-take-your-makeup-from-day-to-date-night/)
+- [flawless genius](https://makeup.allwomenstalk.com/tips-for-applying-your-concealer-flawlessly/)
 - [The Five Minute Beauty Regimen ...](https://allwomenstalk.com/the-five-minute-beauty-regimen/)
 - [8 Simple Steps to Regrow over-plucked Eyebrows ...](https://beauty.allwomenstalk.com/simple-steps-to-regrow-over-plucked-eyebrows/)
 

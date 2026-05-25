@@ -39,16 +39,16 @@ A little self-care is all it takes to smelling beautiful all day.
 
 ## Related Posts
 
-- [best selling fragrances in the world](https://perfumes.allwomenstalk.com/the-most-popular-perfumes-around-the-world/)
-- [what perfume do guys like](https://perfumes.allwomenstalk.com/the-perfume-scents-that-turn-men-off/)
-- [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
-- [solid cologne recipe](https://perfumes.allwomenstalk.com/ingredient-diy-solid-perfume/)
-- [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
-- [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
-- [which lasts longer perfume or eau de parfum](https://perfumes.allwomenstalk.com/brilliant-ways-to-make-your-perfume-last-longer-in-summer/)
 - [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
 - [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
+- [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
+- [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
+- [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
 - [fragrance love types](https://perfumes.allwomenstalk.com/signs-you-love-perfume/)
+- [which lasts longer perfume or eau de parfum](https://perfumes.allwomenstalk.com/brilliant-ways-to-make-your-perfume-last-longer-in-summer/)
+- [best selling fragrances in the world](https://perfumes.allwomenstalk.com/the-most-popular-perfumes-around-the-world/)
+- [what perfume do guys like](https://perfumes.allwomenstalk.com/the-perfume-scents-that-turn-men-off/)
+- [solid cologne recipe](https://perfumes.allwomenstalk.com/ingredient-diy-solid-perfume/)
 - [Keep Your Feet Free from Stink and Sweat ...](https://beauty.allwomenstalk.com/keep-your-feet-free-from-stink-and-sweat/)
 - [The Problem of Boob Sweat: How to Deal ...](https://beauty.allwomenstalk.com/the-problem-of-boob-sweat-how-to-deal/)
 

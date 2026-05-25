@@ -42,14 +42,14 @@ So you mustn't be ashamed of your scars. It's a sign of healing and shows that y
 
 ## Related Posts
 
-- [never make a decision when you are angry](https://lifestyle.allwomenstalk.com/never-make-these-decisions-when-youre-angry/)
+- [anagepis meaning](https://lifestyle.allwomenstalk.com/emotions-we-feel-but-cant-explain/)
+- [7 signs youre charming](https://inspiration.allwomenstalk.com/habits-of-genuinely-charming-people/)
 - [free thinker examples](https://inspiration.allwomenstalk.com/are-you-a-free-thinker/)
 - [exercise habits](https://fitness.allwomenstalk.com/habits-of-highly-effective-exercisers/)
-- [put up a front for others](https://inspiration.allwomenstalk.com/masks-you-should-stop-putting-on-in-front-of-others/)
-- [anagepis meaning](https://lifestyle.allwomenstalk.com/emotions-we-feel-but-cant-explain/)
-- [mary lou coffee flavors](https://lifestyle.allwomenstalk.com/what-your-coffee-says-about-you/)
-- [7 signs youre charming](https://inspiration.allwomenstalk.com/habits-of-genuinely-charming-people/)
 - [why you should talk to strangers](https://lifestyle.allwomenstalk.com/heres-why-talking-to-strangers-can-actually-be-good-for-you/)
+- [put up a front for others](https://inspiration.allwomenstalk.com/masks-you-should-stop-putting-on-in-front-of-others/)
+- [never make a decision when you are angry](https://lifestyle.allwomenstalk.com/never-make-these-decisions-when-youre-angry/)
+- [mary lou coffee flavors](https://lifestyle.allwomenstalk.com/what-your-coffee-says-about-you/)
 - [does popularity matter](https://teen.allwomenstalk.com/things-to-remember-if-youre-not-a-popular-kid/)
 - [types of vices and virtues](https://lifestyle.allwomenstalk.com/the-deadly-vices-and-how-to-overcome-them-with-7-virtues/)
 - [Jessica Faces Her Fears...and so Should You ...](https://allwomenstalk.com/jessica-faces-her-fearsand-so-should-you/)

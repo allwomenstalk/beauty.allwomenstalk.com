@@ -42,16 +42,16 @@ That's not to say that none of these products are any good, just that you should
 
 ## Related Posts
 
-- [im here if you need to talk](https://lifestyle.allwomenstalk.com/friendly-phrases-thatll-make-you-more-likable/)
 - [cute password ideas for girls](https://lifestyle.allwomenstalk.com/are-your-passwords-safe/)
-- [fighting tips for girls](https://lifestyle.allwomenstalk.com/little-ways-to-feel-more-independent-right-now/)
-- [high school class mottos](https://teen.allwomenstalk.com/mottos-thatll-motivate-you-when-youre-back-at-school/)
-- [7 cardinal rules of life](https://inspiration.allwomenstalk.com/the-cardinal-rules-of-life-every-woman-should-follow/)
+- [healthtipstop](https://lifestyle.allwomenstalk.com/times-when-a-secret-should-be-leaked/)
 - [hidden passion number calculator](https://lifestyle.allwomenstalk.com/numerology-websites-thatll-help-you-find-your-lifes-path/)
 - [7.2 trillion degrees fahrenheit](https://lifestyle.allwomenstalk.com/these-hot-facts-about-temperature-are-so-cool-to-know/)
+- [high school class mottos](https://teen.allwomenstalk.com/mottos-thatll-motivate-you-when-youre-back-at-school/)
+- [im here if you need to talk](https://lifestyle.allwomenstalk.com/friendly-phrases-thatll-make-you-more-likable/)
+- [fighting tips for girls](https://lifestyle.allwomenstalk.com/little-ways-to-feel-more-independent-right-now/)
 - [why do i get so obsessed with guys](https://love.allwomenstalk.com/how-to-calm-down-your-obsession-with-boys/)
+- [7 cardinal rules of life](https://inspiration.allwomenstalk.com/the-cardinal-rules-of-life-every-woman-should-follow/)
 - [tips for living alone for the first time](https://teen.allwomenstalk.com/how-to-survive-your-first-year-living-alone/)
-- [healthtipstop](https://lifestyle.allwomenstalk.com/times-when-a-secret-should-be-leaked/)
 - [This is Why Its Time to Stop Judging Women Based o...](https://fashion.allwomenstalk.com/this-is-why-its-time-to-stop-judging-women-based-on-their-clothes/)
 - [Why Buying Second-Hand Clothing Isnt Just for Girl...](https://fashion.allwomenstalk.com/why-buying-second-hand-clothing-isnt-just-for-girls-on-a-budget/)
 

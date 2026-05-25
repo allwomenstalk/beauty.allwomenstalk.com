@@ -50,16 +50,16 @@ Do you use any of these products? There’s something so refreshing and fun abou
 
 ## Related Posts
 
-- [7 Trial Sized Beauty Products to Always Have aroun...](https://beauty.allwomenstalk.com/trial-sized-beauty-products-to-always-have-around/)
-- [mangapanda-blog.com highlighting your beauty](https://makeup.allwomenstalk.com/new-drugstore-beauty-buys-to-pick-up-for-the-summer/)
-- [this cool guy my gardener met yesterday configures...](https://makeup.allwomenstalk.com/prime-products-for-your-lashes/)
 - [beauty in the pot hacks](https://makeup.allwomenstalk.com/clever-beauty-product-container-hacks-you-must-try/)
-- [7 Purple Beauty Products You Must Try ...](https://beauty.allwomenstalk.com/purple-beauty-products-you-must-try/)
-- [loreal paris color riche smoky primped previous](https://makeup.allwomenstalk.com/makeup-finds-under-10-youve-got-to-own/)
+- [this cool guy my gardener met yesterday configures...](https://makeup.allwomenstalk.com/prime-products-for-your-lashes/)
 - [loreal le stylo shadow emerald](https://makeup.allwomenstalk.com/green-beauty-products-that-will-totally-make-you-smile/)
-- [7 Best Products for Your Eyebrows ...](https://makeup.allwomenstalk.com/best-products-for-your-eyebrows/)
+- [7 Purple Beauty Products You Must Try ...](https://beauty.allwomenstalk.com/purple-beauty-products-you-must-try/)
+- [mangapanda-blog.com highlighting your beauty](https://makeup.allwomenstalk.com/new-drugstore-beauty-buys-to-pick-up-for-the-summer/)
 - [7 Stunning Eyeliners for Summer That You Need Now](https://makeup.allwomenstalk.com/stunning-eyeliners-for-summer-that-you-need-now/)
 - [7 Must-read Tips for Buying Drugstore Makeup Brush...](https://beauty.allwomenstalk.com/must-read-tips-for-buying-drugstore-makeup-brushes/)
+- [7 Trial Sized Beauty Products to Always Have aroun...](https://beauty.allwomenstalk.com/trial-sized-beauty-products-to-always-have-around/)
+- [loreal paris color riche smoky primped previous](https://makeup.allwomenstalk.com/makeup-finds-under-10-youve-got-to-own/)
+- [7 Best Products for Your Eyebrows ...](https://makeup.allwomenstalk.com/best-products-for-your-eyebrows/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 - [7 New Make up Products Youll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)
 

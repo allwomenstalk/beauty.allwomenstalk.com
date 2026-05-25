@@ -63,16 +63,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/9854907)
 
 ## Related Posts
 
-- [what i bought today](https://lifestyle.allwomenstalk.com/things-i-bought-today/)
 - [bumper stickers for bad drivers](https://lifestyle.allwomenstalk.com/car-bumper-stickers-i-wish-i-had/)
-- [marc jacobs laptop sleeve](https://lifestyle.allwomenstalk.com/nifty-neoprene-laptop-cases/)
-- [sport wind](https://lifestyle.allwomenstalk.com/wind-powered-sports/)
-- [8 Wacky Things You Can Rent These Days ...](https://lifestyle.allwomenstalk.com/unusual-things-you-can-rent-these-days/)
-- [erte calendar](https://lifestyle.allwomenstalk.com/great-wall-calendars/)
 - [nordstrom coasters](https://lifestyle.allwomenstalk.com/eye-catching-coasters/)
 - [docking stations for ipods](https://lifestyle.allwomenstalk.com/fun-ipod-docks/)
 - [Getting to Know ETSY Shop: Vint Design ...](https://lifestyle.allwomenstalk.com/getting-to-know-etsy-shop-vint-design/)
+- [marc jacobs laptop sleeve](https://lifestyle.allwomenstalk.com/nifty-neoprene-laptop-cases/)
+- [sport wind](https://lifestyle.allwomenstalk.com/wind-powered-sports/)
+- [erte calendar](https://lifestyle.allwomenstalk.com/great-wall-calendars/)
 - [Giveaway Contest Winner: the Spotted Olive Station...](https://lifestyle.allwomenstalk.com/giveaway-contest-winner-the-spotted-olive-stationery-set/)
+- [what i bought today](https://lifestyle.allwomenstalk.com/things-i-bought-today/)
+- [8 Wacky Things You Can Rent These Days ...](https://lifestyle.allwomenstalk.com/unusual-things-you-can-rent-these-days/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 Lip Conditioning Products to Try out ...](https://beauty.allwomenstalk.com/lip-conditioning-products-to-try-out/)
 

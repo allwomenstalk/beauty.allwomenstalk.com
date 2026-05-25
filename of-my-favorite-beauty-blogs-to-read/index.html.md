@@ -56,16 +56,16 @@ There you have it, 7 of my favorite beauty blogs. Are these beauty blogs new to 
 
 ## Related Posts
 
-- [tumblr fashion blog](https://fashion.allwomenstalk.com/best-unknown-fashion-tumblr-blogs/)
-- [best health blogs](https://fitness.allwomenstalk.com/great-health-and-fitness-blogs/)
-- [tumblrs to follow](https://funny.allwomenstalk.com/entertaining-tumblr-blogs-to-follow-for-a-laugh/)
 - [tumblrs to follow](https://celebs.allwomenstalk.com/best-celebrity-tumblrs-you-should-follow/)
-- [how long to bake salmon](https://food.allwomenstalk.com/amazing-baking-blogs-for-baking-enthusiasts/)
-- [blogs about healthy eating](https://food.allwomenstalk.com/inspiring-whole-foods-blogs-to-follow/)
-- [fashion articles for students](https://fashion.allwomenstalk.com/best-fashion-blogs-for-college-students/)
+- [best health blogs](https://fitness.allwomenstalk.com/great-health-and-fitness-blogs/)
 - [inspirational website](https://inspiration.allwomenstalk.com/inspiring-websites-to-check-out/)
-- [food news websites](https://food.allwomenstalk.com/food-websites-and-blogs-i-love-to-read/)
+- [tumblr fashion blog](https://fashion.allwomenstalk.com/best-unknown-fashion-tumblr-blogs/)
 - [get tumblr followers instantly](https://lifestyle.allwomenstalk.com/tips-for-a-successful-tumblr-blog/)
+- [tumblrs to follow](https://funny.allwomenstalk.com/entertaining-tumblr-blogs-to-follow-for-a-laugh/)
+- [food news websites](https://food.allwomenstalk.com/food-websites-and-blogs-i-love-to-read/)
+- [how long to bake salmon](https://food.allwomenstalk.com/amazing-baking-blogs-for-baking-enthusiasts/)
+- [fashion articles for students](https://fashion.allwomenstalk.com/best-fashion-blogs-for-college-students/)
+- [blogs about healthy eating](https://food.allwomenstalk.com/inspiring-whole-foods-blogs-to-follow/)
 - [10 Best Beauty Websites out There ...](https://allwomenstalk.com/top-10-best-beauty-websites-out-there/)
 - [10 Best Beauty Blogs for Women ...](https://allwomenstalk.com/10-best-beauty-blogs-for-women/)
 

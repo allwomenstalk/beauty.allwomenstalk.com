@@ -56,16 +56,16 @@ Do you splurge on expensive beauty products? Which one is totally worth it? I th
 
 ## Related Posts
 
-- [coral lipstick makeup look](https://makeup.allwomenstalk.com/coral-makeup-products-you-need-this-summer/)
+- [loreal paris riche stylo smoky eye primped and](https://makeup.allwomenstalk.com/premium-makeup-products-from-loreal-paris/)
+- [best concealer for acne scars and blemishes drugst...](https://makeup.allwomenstalk.com/best-drugstore-concealers-you-need-to-get-your-hands-on/)
+- [best face highlighters](https://makeup.allwomenstalk.com/awesome-face-highlighters-to-help-give-you-a-beautiful-glow/)
 - [branded toiletries](https://beauty.allwomenstalk.com/uniquely-american-toiletry-brands/)
 - [iron oxide in mascara](https://makeup.allwomenstalk.com/harmful-ingredients-in-mascara-that-you-should-avoid/)
-- [loreal paris riche stylo smoky eye primped and](https://makeup.allwomenstalk.com/premium-makeup-products-from-loreal-paris/)
-- [best face highlighters](https://makeup.allwomenstalk.com/awesome-face-highlighters-to-help-give-you-a-beautiful-glow/)
+- [coral lipstick makeup look](https://makeup.allwomenstalk.com/coral-makeup-products-you-need-this-summer/)
+- [paris palette primped and](https://makeup.allwomenstalk.com/must-have-makeup-palettes-for-summer/)
 - [nyc bronzer sunny](https://makeup.allwomenstalk.com/amazing-bronzers-for-people-who-hate-bronzers/)
 - [paris palette primped and previous](https://makeup.allwomenstalk.com/super-affordable-eye-shadow-palettes-youll-love/)
-- [paris palette primped and](https://makeup.allwomenstalk.com/must-have-makeup-palettes-for-summer/)
 - [revlon best sellers](https://makeup.allwomenstalk.com/revlon-makeup-products-that-are-worth-owning/)
-- [best concealer for acne scars and blemishes drugst...](https://makeup.allwomenstalk.com/best-drugstore-concealers-you-need-to-get-your-hands-on/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 - [7 Best Beauty Buys ...](https://allwomenstalk.com/7-best-beauty-buys/)
 

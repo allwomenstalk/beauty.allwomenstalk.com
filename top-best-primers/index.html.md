@@ -102,16 +102,16 @@ Now that you know exactly what you are getting into when it comes to primers, wh
 
 ## Related Posts
 
-- [11 Great Lush Products to Try This Winter ...](https://beauty.allwomenstalk.com/great-lush-products-to-try-this-winter/)
+- [7 Beauty Products for Lazy Girls Looking for Short...](https://beauty.allwomenstalk.com/beauty-products-for-lazy-girls-looking-for-shortcuts/)
 - [7 of My Favorite Inexpensive Beauty Products ...](https://beauty.allwomenstalk.com/of-my-favorite-inexpensive-beauty-products/)
-- [7 Bargain Shopping Sites to save Big on Fashion an...](https://money.allwomenstalk.com/bargain-shopping-sites-to-save-big-on-fashion-and-beauty-products/)
 - [7 Best Eye Shadow Colors for 2014 ...](https://makeup.allwomenstalk.com/best-eye-shadow-colors-for/)
+- [11 Great Lush Products to Try This Winter ...](https://beauty.allwomenstalk.com/great-lush-products-to-try-this-winter/)
+- [7 Bargain Shopping Sites to save Big on Fashion an...](https://money.allwomenstalk.com/bargain-shopping-sites-to-save-big-on-fashion-and-beauty-products/)
 - [7 Must-have Multi-tasking Beauty Products for the ...](https://makeup.allwomenstalk.com/must-have-multi-tasking-beauty-products-for-the-busy-holiday-season/)
-- [9 Mood-boosting Beauty Products to Beat the Winter...](https://beauty.allwomenstalk.com/mood-boosting-beauty-products-to-beat-the-winter-blues/)
-- [7 Best Drugstore Beauty Products to Try ...](https://beauty.allwomenstalk.com/best-drugstore-beauty-products-to-try/)
 - [9 Cult Beauty Buys under 10 Youve Got to Try out ....](https://beauty.allwomenstalk.com/cult-beauty-buys-under-10-youve-got-to-try-out/)
 - [smashbox my digits](https://makeup.allwomenstalk.com/holiday-beauty-collections-that-are-to-die-for/)
-- [7 Beauty Products for Lazy Girls Looking for Short...](https://beauty.allwomenstalk.com/beauty-products-for-lazy-girls-looking-for-shortcuts/)
+- [7 Best Drugstore Beauty Products to Try ...](https://beauty.allwomenstalk.com/best-drugstore-beauty-products-to-try/)
+- [9 Mood-boosting Beauty Products to Beat the Winter...](https://beauty.allwomenstalk.com/mood-boosting-beauty-products-to-beat-the-winter-blues/)
 - [7 Best Makeup Primers ...](https://allwomenstalk.com/7-best-makeup-primers/)
 - [10 Best Powder Foundations ...](https://allwomenstalk.com/10-best-powder-foundations/)
 

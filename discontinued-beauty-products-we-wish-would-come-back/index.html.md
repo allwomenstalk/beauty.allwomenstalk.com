@@ -56,15 +56,15 @@ Well, there you have it: some of the best beauty products that have gone off to 
 
 ## Related Posts
 
+- [where to buy sephora makeup](https://makeup.allwomenstalk.com/forget-sephora-the-most-affordable-websites-for-buying-makeup/)
 - [what cosmetic companies are made in the usa](https://makeup.allwomenstalk.com/buyer-beware-makeup-brands-that-are-bad-for-your-skin/)
 - [best things to splurge on](https://money.allwomenstalk.com/indispensable-products-women-splurge-on-and-you-should-too/)
 - [shaina and kathy had a fight and havent talked for...](https://fashion.allwomenstalk.com/products-all-makeup-and-fashion-junkies-need-to-have/)
-- [moth face makeup](https://makeup.allwomenstalk.com/beauty-or-art-stunning-avant-garde-makeup/)
-- [where to buy sephora makeup](https://makeup.allwomenstalk.com/forget-sephora-the-most-affordable-websites-for-buying-makeup/)
+- [body glitter 90s](https://beauty.allwomenstalk.com/90s-make-up-products-thatll-blow-your-mind-and-improve-your-beauty-routine/)
 - [eyebrow game](https://makeup.allwomenstalk.com/up-your-eyebrow-game-with-these-brow-products-for-your-makeup-bag/)
 - [lanzaroti](https://makeup.allwomenstalk.com/gross-products-in-your-make-up-that-you-never-knew-about/)
-- [body glitter 90s](https://beauty.allwomenstalk.com/90s-make-up-products-thatll-blow-your-mind-and-improve-your-beauty-routine/)
 - [beauty products to try](https://beauty.allwomenstalk.com/classic-beauty-products-to-try-that-have-stood-the-test-of-time/)
+- [moth face makeup](https://makeup.allwomenstalk.com/beauty-or-art-stunning-avant-garde-makeup/)
 - [most expensive product at sephora](https://makeup.allwomenstalk.com/what-you-need-to-know-about-sephora/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 - [7 New Make up Products Youll Love ...](https://allwomenstalk.com/7-new-make-up-products-youll-love/)

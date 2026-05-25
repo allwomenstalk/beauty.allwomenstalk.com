@@ -74,16 +74,16 @@ How have you worn your eyebrows through the years? Do you ever look at style ico
 
 ## Related Posts
 
-- [chinese moon festival facts](https://travel.allwomenstalk.com/interesting-facts-about-the-chinese-mid-autumn-festival/)
-- [about scandal](https://movies.allwomenstalk.com/surprising-fun-facts-about-scandal/)
-- [facts on wildlife](https://lifestyle.allwomenstalk.com/startling-and-mind-blowing-new-facts-about-wildlife-extinction/)
-- [5 facts about penguin](https://lifestyle.allwomenstalk.com/fun-facts-about-penguins/)
-- [peter capaldi wedding ring](https://movies.allwomenstalk.com/facts-and-things-to-know-about-the-new-doctor-who/)
 - [nerdy fun facts](https://movies.allwomenstalk.com/nerdy-facts-about-star-wars/)
-- [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
-- [google when is the first day of fall](https://lifestyle.allwomenstalk.com/facts-about-the-first-day-of-fall/)
+- [facts on wildlife](https://lifestyle.allwomenstalk.com/startling-and-mind-blowing-new-facts-about-wildlife-extinction/)
 - [facts on vegetarianism](https://food.allwomenstalk.com/interesting-facts-about-vegetarianism/)
 - [chocolate myth](https://food.allwomenstalk.com/myths-about-chocolate-exposed/)
+- [google when is the first day of fall](https://lifestyle.allwomenstalk.com/facts-about-the-first-day-of-fall/)
+- [peter capaldi wedding ring](https://movies.allwomenstalk.com/facts-and-things-to-know-about-the-new-doctor-who/)
+- [5 facts about penguin](https://lifestyle.allwomenstalk.com/fun-facts-about-penguins/)
+- [chinese moon festival facts](https://travel.allwomenstalk.com/interesting-facts-about-the-chinese-mid-autumn-festival/)
+- [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
+- [about scandal](https://movies.allwomenstalk.com/surprising-fun-facts-about-scandal/)
 - [12 Tips on How to Pluck Your Eyebrows ...](https://allwomenstalk.com/12-tips-on-how-to-pluck-your-eyebrows/)
 - [10 Beautiful Eyebrows Tips ...](https://allwomenstalk.com/beautiful-eyebrows-tips/)
 

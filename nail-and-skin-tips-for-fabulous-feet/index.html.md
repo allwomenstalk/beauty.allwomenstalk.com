@@ -16,15 +16,15 @@ Even though we wear shoes most of the time that cover our feet, it doesn’t mea
 
 ## Related Posts
 
-- [strong healthy nails](https://nails.allwomenstalk.com/how-to-make-your-nails-strong-and-healthy/)
-- [good looking nails](https://nails.allwomenstalk.com/best-tips-for-classy-nails/)
-- [ts nail and spa](https://allwomenstalk.com/healthy-nail-dos-donts/)
-- [how to keep your nails long](https://nails.allwomenstalk.com/pro-tips-on-how-to-keep-your-nails-long-and-strong/)
-- [how to do your own manicure](https://nails.allwomenstalk.com/steps-to-the-perfect-at-home-manicure/)
-- [Hand Care Tips and Recipes ...](https://allwomenstalk.com/hand-care-tips-and-recipes/)
-- [cracking of nails](https://nails.allwomenstalk.com/brilliant-ways-to-prevent-chipped-or-cracked-nail-polish/)
-- [Pedicure Safety Tips ...](https://allwomenstalk.com/pedicure-safety-tips/)
 - [10 Tips for Spring Nails ...](https://allwomenstalk.com/10-tips-for-spring-nails/)
+- [ts nail and spa](https://allwomenstalk.com/healthy-nail-dos-donts/)
+- [cracking of nails](https://nails.allwomenstalk.com/brilliant-ways-to-prevent-chipped-or-cracked-nail-polish/)
+- [how to do your own manicure](https://nails.allwomenstalk.com/steps-to-the-perfect-at-home-manicure/)
+- [Pedicure Safety Tips ...](https://allwomenstalk.com/pedicure-safety-tips/)
+- [how to keep your nails long](https://nails.allwomenstalk.com/pro-tips-on-how-to-keep-your-nails-long-and-strong/)
+- [good looking nails](https://nails.allwomenstalk.com/best-tips-for-classy-nails/)
+- [Hand Care Tips and Recipes ...](https://allwomenstalk.com/hand-care-tips-and-recipes/)
+- [strong healthy nails](https://nails.allwomenstalk.com/how-to-make-your-nails-strong-and-healthy/)
 - [Take Care of Your Feet. a Pedicure How-to ...](https://allwomenstalk.com/take-care-of-your-feet-a-pedicure-how-to/)
 - [Foot Care ...](https://allwomenstalk.com/foot-care/)
 - [Feet Care Tips ...](https://allwomenstalk.com/feet-care-tips/)

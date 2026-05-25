@@ -42,16 +42,16 @@ Which of these beauty blunders have you had to suffer through? What did you do?
 
 ## Related Posts
 
-- [can i add frankincense to my moisturizer](https://health.allwomenstalk.com/ways-to-add-frankincense-oil-to-your-beauty-routine/)
+- [does hairspray expire](https://beauty.allwomenstalk.com/how-long-will-your-beauty-products-actually-last/)
 - [how do you spell vaseline](https://beauty.allwomenstalk.com/how-can-you-use-vaseline-to-be-prettier/)
-- [body wraps what to expect](https://beauty.allwomenstalk.com/heres-how-body-wraps-can-make-you-slimmer-and-prettier-in-an-hour/)
-- [french women skincare](https://skincare.allwomenstalk.com/skincare-tips-from-sexy-french-women/)
+- [can i add frankincense to my moisturizer](https://health.allwomenstalk.com/ways-to-add-frankincense-oil-to-your-beauty-routine/)
 - [easebrew benefits](https://beauty.allwomenstalk.com/beauty-secrets-that-require-you-to-grab-some-green-tea/)
-- [paris color stylo shadow always pink](https://makeup.allwomenstalk.com/ways-to-shake-up-your-regular-makeup-routine/)
 - [french beauty ideals](https://beauty.allwomenstalk.com/these-are-the-beauty-rules-french-women-always-follow/)
 - [inverted triangle eyebrows](https://beauty.allwomenstalk.com/make-better-beauty-decisions-with-these-face-shape-infographics/)
-- [does hairspray expire](https://beauty.allwomenstalk.com/how-long-will-your-beauty-products-actually-last/)
+- [paris color stylo shadow always pink](https://makeup.allwomenstalk.com/ways-to-shake-up-your-regular-makeup-routine/)
+- [french women skincare](https://skincare.allwomenstalk.com/skincare-tips-from-sexy-french-women/)
 - [beauty resolutions](https://fashion.allwomenstalk.com/easy-fashion-and-beauty-resolutions-for-the-new-year/)
+- [body wraps what to expect](https://beauty.allwomenstalk.com/heres-how-body-wraps-can-make-you-slimmer-and-prettier-in-an-hour/)
 - [7 Quick Make-up Fixes for a Tired Face ...](https://makeup.allwomenstalk.com/7-quick-make-up-fixes-for-a-tired-face/)
 - [7 Summer Beauty Tips ...](https://makeup.allwomenstalk.com/summer-beauty-tips-2/)
 

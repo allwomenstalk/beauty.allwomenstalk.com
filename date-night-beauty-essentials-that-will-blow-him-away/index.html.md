@@ -68,16 +68,16 @@ Other essentials I love include mascara, tissues and bobby pins, but the 9 essen
 
 ## Related Posts
 
-- [tarte amazonian clay brow mousse](https://beauty.allwomenstalk.com/clever-beauty-products-that-you-need-in-your-life/)
-- [best makeup brands for makeup artists](https://makeup.allwomenstalk.com/must-see-makeup-lines-by-makeup-artists/)
-- [fashion subscription boxes](https://fashion.allwomenstalk.com/fashion-and-beauty-subscription-boxes-to-get-delivered-to-your-door/)
-- [define pristinely](https://makeup.allwomenstalk.com/pristinely-white-makeup-products-to-lighten-your-look/)
 - [makeup collabs with movies](https://makeup.allwomenstalk.com/arty-makeup-collaborations/)
-- [double duty beauty products](https://beauty.allwomenstalk.com/awesome-double-duty-beauty-products-that-every-girl-should-have/)
-- [list of beauty products every girl needs](https://beauty.allwomenstalk.com/brilliant-beauty-products-every-glamour-girl-needs/)
+- [define pristinely](https://makeup.allwomenstalk.com/pristinely-white-makeup-products-to-lighten-your-look/)
+- [tarte amazonian clay brow mousse](https://beauty.allwomenstalk.com/clever-beauty-products-that-you-need-in-your-life/)
 - [goth alternative makeup](https://makeup.allwomenstalk.com/dark-beauty-products-for-a-gothic-makeup-look/)
-- [beauty tools every woman needs](https://makeup.allwomenstalk.com/incredible-beauty-tools-you-should-own-for-flawless-makeup/)
 - [paris riche le stylo smoky eye shadow rose](https://makeup.allwomenstalk.com/gorgeous-makeup-shades-for-fall-thatll-look-good-on-anyone-that-wears-them/)
+- [list of beauty products every girl needs](https://beauty.allwomenstalk.com/brilliant-beauty-products-every-glamour-girl-needs/)
+- [fashion subscription boxes](https://fashion.allwomenstalk.com/fashion-and-beauty-subscription-boxes-to-get-delivered-to-your-door/)
+- [double duty beauty products](https://beauty.allwomenstalk.com/awesome-double-duty-beauty-products-that-every-girl-should-have/)
+- [beauty tools every woman needs](https://makeup.allwomenstalk.com/incredible-beauty-tools-you-should-own-for-flawless-makeup/)
+- [best makeup brands for makeup artists](https://makeup.allwomenstalk.com/must-see-makeup-lines-by-makeup-artists/)
 - [9 Most Popular Beauty Treatments ...](https://allwomenstalk.com/9-most-popular-beauty-treatments/)
 - [9 High-end Beauty Products That Are Actually Worth...](https://beauty.allwomenstalk.com/high-end-beauty-products-that-are-actually-worth-the-price/)
 

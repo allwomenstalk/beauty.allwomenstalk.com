@@ -44,16 +44,16 @@ So you see, lemons aren't just for lemonade, they can also be your lemon-aid! Is
 
 ## Related Posts
 
-- [how to brighten up a tired looking face](https://beauty.allwomenstalk.com/awesome-beauty-tips-to-help-you-look-less-tired/)
 - [super secret tip](https://beauty.allwomenstalk.com/hush-hush-beauty-secrets-you-need-to-know-now/)
-- [natural beauty tips for teenagers](https://teen.allwomenstalk.com/amazing-beauty-tips-for-teens-2/)
-- [clevertips](https://skincare.allwomenstalk.com/clever-tips-to-get-the-most-out-of-your-face-masks/)
-- [uses for lemons for skin](https://beauty.allwomenstalk.com/everyday-beauty-uses-for-lemons/)
-- [stackedskincare dermaplaning tool](https://beauty.allwomenstalk.com/beauty-cheats-from-victorias-secret-models/)
-- [ice cube triangle freckle](https://beauty.allwomenstalk.com/genius-beauty-hacks-to-try/)
-- [unconventional beauty](https://beauty.allwomenstalk.com/unconventional-beauty-treatments-you-wont-believe/)
+- [how to brighten up a tired looking face](https://beauty.allwomenstalk.com/awesome-beauty-tips-to-help-you-look-less-tired/)
 - [beautyjunkies](https://money.allwomenstalk.com/cool-jobs-for-beauty-junkies/)
+- [clevertips](https://skincare.allwomenstalk.com/clever-tips-to-get-the-most-out-of-your-face-masks/)
 - [beauty rituals around the world](https://beauty.allwomenstalk.com/beauty-rituals-around-the-world/)
+- [natural beauty tips for teenagers](https://teen.allwomenstalk.com/amazing-beauty-tips-for-teens-2/)
+- [uses for lemons for skin](https://beauty.allwomenstalk.com/everyday-beauty-uses-for-lemons/)
+- [ice cube triangle freckle](https://beauty.allwomenstalk.com/genius-beauty-hacks-to-try/)
+- [stackedskincare dermaplaning tool](https://beauty.allwomenstalk.com/beauty-cheats-from-victorias-secret-models/)
+- [unconventional beauty](https://beauty.allwomenstalk.com/unconventional-beauty-treatments-you-wont-believe/)
 - [7 Summer Beauty Tips ...](https://makeup.allwomenstalk.com/summer-beauty-tips-2/)
 - [7 Rejuvenating Beauty Tricks ...](https://beauty.allwomenstalk.com/rejuvenating-beauty-tricks/)
 

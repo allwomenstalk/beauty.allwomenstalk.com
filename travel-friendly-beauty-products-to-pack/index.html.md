@@ -56,16 +56,16 @@ I wish I could add more products to this list of travel friendly beauty products
 
 ## Related Posts
 
-- [date night for him](https://beauty.allwomenstalk.com/date-night-beauty-essentials-that-will-blow-him-away/)
-- [tarte amazonian clay brow mousse](https://beauty.allwomenstalk.com/clever-beauty-products-that-you-need-in-your-life/)
-- [define pristinely](https://makeup.allwomenstalk.com/pristinely-white-makeup-products-to-lighten-your-look/)
-- [goth alternative makeup](https://makeup.allwomenstalk.com/dark-beauty-products-for-a-gothic-makeup-look/)
-- [most popular false eyelashes](https://makeup.allwomenstalk.com/outrageous-pairs-of-false-lashes-to-try-for-fun/)
-- [best rated makeup organizers](https://bags.allwomenstalk.com/adorable-cosmetics-bags/)
-- [makeup collabs with movies](https://makeup.allwomenstalk.com/arty-makeup-collaborations/)
 - [lipstick queen black tie optional](https://makeup.allwomenstalk.com/jet-black-makeup-products-to-add-drama-to-your-look/)
-- [stores that sell beauty products](https://beauty.allwomenstalk.com/unexpected-places-to-find-beauty-products/)
+- [most popular false eyelashes](https://makeup.allwomenstalk.com/outrageous-pairs-of-false-lashes-to-try-for-fun/)
+- [tarte amazonian clay brow mousse](https://beauty.allwomenstalk.com/clever-beauty-products-that-you-need-in-your-life/)
+- [date night for him](https://beauty.allwomenstalk.com/date-night-beauty-essentials-that-will-blow-him-away/)
+- [makeup collabs with movies](https://makeup.allwomenstalk.com/arty-makeup-collaborations/)
+- [best rated makeup organizers](https://bags.allwomenstalk.com/adorable-cosmetics-bags/)
 - [fashion subscription boxes](https://fashion.allwomenstalk.com/fashion-and-beauty-subscription-boxes-to-get-delivered-to-your-door/)
+- [stores that sell beauty products](https://beauty.allwomenstalk.com/unexpected-places-to-find-beauty-products/)
+- [goth alternative makeup](https://makeup.allwomenstalk.com/dark-beauty-products-for-a-gothic-makeup-look/)
+- [define pristinely](https://makeup.allwomenstalk.com/pristinely-white-makeup-products-to-lighten-your-look/)
 - [7 New Beauty Products Youll Love ...](https://beauty.allwomenstalk.com/new-beauty-products-youll-love/)
 - [7 Eco-Friendly Makeup Products to Try ...](https://makeup.allwomenstalk.com/eco-friendly-makeup-products-to-try/)
 

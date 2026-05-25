@@ -88,16 +88,16 @@ Price: $6.00 at [Sephora.com](http://www.sephora.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
+- [Fab Waterproof Makeup to Keep You Looking Sexy All...](https://makeup.allwomenstalk.com/fab-waterproof-makeup-to-keep-you-looking-sexy-all-season/)
 - [15 Innovative Beauty Products Thatll Go Viral in 2...](https://beauty.allwomenstalk.com/innovative-beauty-products-thatll-go-viral-in/)
 - [Hottest Beauty Products for Coachella 2018 ...](https://beauty.allwomenstalk.com/hottest-beauty-products-for-coachella/)
+- [Vegan Cosmetics Brands All Girls Will Fall in Love...](https://makeup.allwomenstalk.com/best-vegan-cosmetics-brands/)
 - [riche stylo hollywood icon](https://makeup.allwomenstalk.com/the-makeup-brushes-every-collection-needs/)
-- [5 Awesome Benefits of Organic Makeup Every Girl Ne...](https://beauty.allwomenstalk.com/benefits-of-organic-makeup/)
 - [8 Flawless Drugstore Foundations for Girls with Oi...](https://beauty.allwomenstalk.com/flawless-drugstore-foundations-for-girls-with-oily-skin/)
 - [26 of the Best Beauty Tools  Brushes for Girls Who...](https://beauty.allwomenstalk.com/of-the-best-beauty-tools-brushes-for-girls-who-love-their-makeup/)
-- [Fab Waterproof Makeup to Keep You Looking Sexy All...](https://makeup.allwomenstalk.com/fab-waterproof-makeup-to-keep-you-looking-sexy-all-season/)
-- [black friday 2017 sephora](https://beauty.allwomenstalk.com/best-black-friday-deals-from-sephora/)
-- [Vegan Cosmetics Brands All Girls Will Fall in Love...](https://makeup.allwomenstalk.com/best-vegan-cosmetics-brands/)
 - [3 Absolute Must Have Beauty Products for Ladies Wh...](https://beauty.allwomenstalk.com/must-have-beauty-products-for-flawless-skin/)
+- [5 Awesome Benefits of Organic Makeup Every Girl Ne...](https://beauty.allwomenstalk.com/benefits-of-organic-makeup/)
+- [black friday 2017 sephora](https://beauty.allwomenstalk.com/best-black-friday-deals-from-sephora/)
 - [8 Essential Beauty Products All Girls Should Own ....](https://allwomenstalk.com/8-essential-beauty-products-all-girls-should-own/)
 - [10 Best Drugstore Beauty Products ...](https://beauty.allwomenstalk.com/best-drugstore-beauty-products/)
 

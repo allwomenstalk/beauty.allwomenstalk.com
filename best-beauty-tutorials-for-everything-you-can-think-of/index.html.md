@@ -114,16 +114,16 @@ Did I miss anything? Let me know in the comments, we'll add it in!
 
 ## Related Posts
 
-- [Common Beauty Habits That do More Harm than Good ....](https://beauty.allwomenstalk.com/common-beauty-habits-that-do-more-harm-than-good/)
-- [The Top 7 Beauty Terms You Need in 2017 ...](https://beauty.allwomenstalk.com/the-top-beauty-terms-you-need-in/)
-- [Fix Your Beauty Woes by Checking out This Chicks Y...](https://makeup.allwomenstalk.com/fix-your-beauty-woes-by-checking-out-this-chicks-yt-channel/)
 - [hot transition](https://beauty.allwomenstalk.com/flawlessly-transition-into-fall-with-these-hot-x-beauty-tips/)
-- [Natural Beauty is Expressed in These 143 Fabulous ...](https://beauty.allwomenstalk.com/natural-beauty-is-expressed-in-these-fabulous-pictures/)
-- [beauty recipes](https://beauty.allwomenstalk.com/here-are-the-most-effective-diy-beauty-recipes-every-girl-needs-to-know/)
 - [diy beauty treatments](https://beauty.allwomenstalk.com/super-easy-diy-beauty-treatments-for-girls-who-want-to-look-beyond-gorgeous/)
-- [Ultimate Beauty Steps for Girls Who Want to Try a ...](https://skincare.allwomenstalk.com/ultimate-beauty-steps-for-girls-who-want-to-try-a-korean-skincare-routine/)
-- [Heres How Blurring Sticks Will Change Your Beauty ...](https://skincare.allwomenstalk.com/heres-how-blurring-sticks-will-change-your-beauty-routine/)
+- [beauty recipes](https://beauty.allwomenstalk.com/here-are-the-most-effective-diy-beauty-recipes-every-girl-needs-to-know/)
+- [Fix Your Beauty Woes by Checking out This Chicks Y...](https://makeup.allwomenstalk.com/fix-your-beauty-woes-by-checking-out-this-chicks-yt-channel/)
+- [The Top 7 Beauty Terms You Need in 2017 ...](https://beauty.allwomenstalk.com/the-top-beauty-terms-you-need-in/)
 - [Super Speedy  Beauty Treatments for Girls Who Just...](https://beauty.allwomenstalk.com/super-speedy-beauty-treatments-for-girls-who-just-never-have-time/)
+- [Heres How Blurring Sticks Will Change Your Beauty ...](https://skincare.allwomenstalk.com/heres-how-blurring-sticks-will-change-your-beauty-routine/)
+- [Common Beauty Habits That do More Harm than Good ....](https://beauty.allwomenstalk.com/common-beauty-habits-that-do-more-harm-than-good/)
+- [Ultimate Beauty Steps for Girls Who Want to Try a ...](https://skincare.allwomenstalk.com/ultimate-beauty-steps-for-girls-who-want-to-try-a-korean-skincare-routine/)
+- [Natural Beauty is Expressed in These 143 Fabulous ...](https://beauty.allwomenstalk.com/natural-beauty-is-expressed-in-these-fabulous-pictures/)
 - [15 Fast Makeup Tips ...](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [10 Fabulous 5-Minute Beauty Tips ...](https://beauty.allwomenstalk.com/fabulous-minute-beauty-tips/)
 

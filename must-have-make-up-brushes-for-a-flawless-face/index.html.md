@@ -50,15 +50,15 @@ Ladies and gents, if you're like me, I literally have a brush for everything for
 
 ## Related Posts
 
-- [sewn in eyelash extensions](https://makeup.allwomenstalk.com/awesome-must-havemakeup-extensions/)
-- [mascara star wars](https://makeup.allwomenstalk.com/may-the-makeup-be-with-you-covergirls-sexy-star-wars-line/)
 - [amazing cosmetics concealer sephora](https://makeup.allwomenstalk.com/the-perfect-concealer-for-hiding-every-skin-sin/)
-- [beauty tedt](https://skincare.allwomenstalk.com/these-are-the-only-skin-products-you-need-to-survive/)
-- [what should i have in my makeup bag](https://makeup.allwomenstalk.com/products-to-place-in-your-first-makeup-bag/)
-- [luneaster hydraglow serum primer](https://beauty.allwomenstalk.com/these-holiday-gifts-for-beauty-gurus-are-all-under-10/)
-- [may coop raw sauce reddit](https://beauty.allwomenstalk.com/lifechanging-korean-beauty-products-that-have-hit-it-big/)
 - [pink eye brows](https://beauty.allwomenstalk.com/on-fleek-rainbow-eyebrows-are-a-thing-now-and-they-are-stunning/)
+- [may coop raw sauce reddit](https://beauty.allwomenstalk.com/lifechanging-korean-beauty-products-that-have-hit-it-big/)
+- [luneaster hydraglow serum primer](https://beauty.allwomenstalk.com/these-holiday-gifts-for-beauty-gurus-are-all-under-10/)
+- [what should i have in my makeup bag](https://makeup.allwomenstalk.com/products-to-place-in-your-first-makeup-bag/)
+- [sewn in eyelash extensions](https://makeup.allwomenstalk.com/awesome-must-havemakeup-extensions/)
 - [best products to look refreshed](https://beauty.allwomenstalk.com/products-for-refreshing-your-look-in-the-middle-of-the-day/)
+- [mascara star wars](https://makeup.allwomenstalk.com/may-the-makeup-be-with-you-covergirls-sexy-star-wars-line/)
+- [beauty tedt](https://skincare.allwomenstalk.com/these-are-the-only-skin-products-you-need-to-survive/)
 - [whats baking makeup](https://makeup.allwomenstalk.com/try-the-makeup-baking-trend-with-these-products/)
 - [7 Tips to Care for Your Makeup Brushes ...](https://makeup.allwomenstalk.com/tips-to-care-for-your-makeup-brushes/)
 - [13 Best Make-up Brushes ...](https://allwomenstalk.com/13-best-make-up-brushes/)

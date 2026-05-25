@@ -68,16 +68,16 @@ Some of these fab beauty products are new, some are a little older but they’re
 
 ## Related Posts
 
-- [mac eyeshadow vanilla](https://makeup.allwomenstalk.com/must-have-mac-eyeshadows-to-have-in-your-collection/)
-- [purple glam eye makeup](https://makeup.allwomenstalk.com/glam-eyeshadow-shades-to-try-this-winter/)
+- [amazing eyeshadow palettes](https://makeup.allwomenstalk.com/best-eye-shadow-palettes-you-will-love-wearing/)
+- [must have make up tools](https://makeup.allwomenstalk.com/essential-beauty-tools-that-you-must-have-in-your-makeup-bag/)
+- [best liquid powder foundation](https://beauty.allwomenstalk.com/best-liquid-foundations/)
+- [loreal paris riche stylo eye shadow primped](https://makeup.allwomenstalk.com/must-haves-for-new-makeup-users/)
+- [best makeup brands for makeup artists](https://makeup.allwomenstalk.com/must-see-makeup-lines-by-makeup-artists/)
 - [top bronzers](https://beauty.allwomenstalk.com/best-bronzers-for-that-fabulous-sun-kissed-glow/)
 - [most popular blush](https://makeup.allwomenstalk.com/best-blushes-to-have-in-your-makeup-bag/)
+- [mac eyeshadow vanilla](https://makeup.allwomenstalk.com/must-have-mac-eyeshadows-to-have-in-your-collection/)
+- [purple glam eye makeup](https://makeup.allwomenstalk.com/glam-eyeshadow-shades-to-try-this-winter/)
 - [paris le stylo smoky eye shadow vegas](https://makeup.allwomenstalk.com/best-cream-eye-shadows-youll-love/)
-- [best liquid powder foundation](https://beauty.allwomenstalk.com/best-liquid-foundations/)
-- [amazing eyeshadow palettes](https://makeup.allwomenstalk.com/best-eye-shadow-palettes-you-will-love-wearing/)
-- [best makeup brands for makeup artists](https://makeup.allwomenstalk.com/must-see-makeup-lines-by-makeup-artists/)
-- [loreal paris riche stylo eye shadow primped](https://makeup.allwomenstalk.com/must-haves-for-new-makeup-users/)
-- [must have make up tools](https://makeup.allwomenstalk.com/essential-beauty-tools-that-you-must-have-in-your-makeup-bag/)
 - [7 Best Beauty Buys ...](https://allwomenstalk.com/7-best-beauty-buys/)
 - [8 Essential Beauty Products All Girls Should Own ....](https://allwomenstalk.com/8-essential-beauty-products-all-girls-should-own/)
 

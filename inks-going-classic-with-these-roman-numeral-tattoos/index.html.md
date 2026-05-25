@@ -106,16 +106,16 @@ I know these aren't Roman numerals, but I loved this idea!
 
 ## Related Posts
 
-- [fergie engagement ring](https://jewelry.allwomenstalk.com/unique-celeb-engagement-rings-you-should-be-jealous-of/)
-- [pirate tattoos](https://beauty.allwomenstalk.com/majestic-mermaid-tattoos-meant-to-make-you-smile/)
-- [roman latin tattoo](https://beauty.allwomenstalk.com/latin-tattoos-you-are-not-going-to-resist-getting/)
-- [irish memorial tattoos](https://beauty.allwomenstalk.com/memorial-tattoos-for-anyone-youve-loved-and-lost/)
-- [cutest tree](https://jewelry.allwomenstalk.com/heres-the-cutest-holiday-tree-themed-jewelry-out-there/)
-- [little prince jewelry](https://jewelry.allwomenstalk.com/pieces-of-jewelry-inspired-by-books/)
-- [the struggle is real tattoo](https://beauty.allwomenstalk.com/these-one-line-tattoos-to-give-you-ink-inspiration/)
-- [paris riche stylo blinged and](https://jewelry.allwomenstalk.com/fab-bling-inspired-by-the-star-wars-franchise/)
 - [statement necklaces for black dress](https://jewelry.allwomenstalk.com/statement-necklaces-thatll-add-sparkle-to-your-wardrobe/)
 - [statement necklace meaning](https://jewelry.allwomenstalk.com/statement-necklaces-to-add-umph-to-any-outfit/)
+- [cutest tree](https://jewelry.allwomenstalk.com/heres-the-cutest-holiday-tree-themed-jewelry-out-there/)
+- [roman latin tattoo](https://beauty.allwomenstalk.com/latin-tattoos-you-are-not-going-to-resist-getting/)
+- [little prince jewelry](https://jewelry.allwomenstalk.com/pieces-of-jewelry-inspired-by-books/)
+- [fergie engagement ring](https://jewelry.allwomenstalk.com/unique-celeb-engagement-rings-you-should-be-jealous-of/)
+- [paris riche stylo blinged and](https://jewelry.allwomenstalk.com/fab-bling-inspired-by-the-star-wars-franchise/)
+- [the struggle is real tattoo](https://beauty.allwomenstalk.com/these-one-line-tattoos-to-give-you-ink-inspiration/)
+- [irish memorial tattoos](https://beauty.allwomenstalk.com/memorial-tattoos-for-anyone-youve-loved-and-lost/)
+- [pirate tattoos](https://beauty.allwomenstalk.com/majestic-mermaid-tattoos-meant-to-make-you-smile/)
 - [41 Inspiring and Mostly Black and White Tattoos to...](https://inspiration.allwomenstalk.com/inspiring-and-mostly-black-and-white-tattoos-to-inspire-your-next-ink-session/)
 - [These Tattoos Look like Watercolors and Are Incred...](https://lifestyle.allwomenstalk.com/these-tattoos-look-like-watercolors-and-are-incredibly-beautiful/)
 

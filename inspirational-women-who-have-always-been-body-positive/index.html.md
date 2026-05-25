@@ -56,16 +56,16 @@ Who do you look up to who encourages the body positive?
 
 ## Related Posts
 
-- [words of wisdom for women](https://inspiration.allwomenstalk.com/pieces-of-wisdom-from-women-in-the-great-generation/)
-- [female superpower ideas](https://lifestyle.allwomenstalk.com/superpowers-every-single-woman-has/)
-- [she won 8 oscars for costume design](https://movies.allwomenstalk.com/reasons-why-this-awesome-woman-won-oscars/)
-- [books about empowered women](https://books.allwomenstalk.com/feminist-books-thatll-make-you-feel-empowered/)
+- [20 Inspirational Moments of 2015 That Made Every W...](https://lifestyle.allwomenstalk.com/inspirational-moments-of-that-made-every-woman-proud/)
 - [Women Who Changed Your Life and You Didnt Even Kno...](https://lifestyle.allwomenstalk.com/these-women-changed-your-life-and-you-may-never-have-heard-of-them/)
 - [can a woman be happy without a man](https://celebs.allwomenstalk.com/women-who-prove-you-can-be-happy-without-a-husband/)
-- [7 Funny Women Who Got Style Too ...](https://fashion.allwomenstalk.com/funny-women-who-got-style-too/)
-- [Innovative Technologies Meant to Empower Women ...](https://lifestyle.allwomenstalk.com/innovative-technologies-meant-to-empower-women/)
+- [female superpower ideas](https://lifestyle.allwomenstalk.com/superpowers-every-single-woman-has/)
+- [she won 8 oscars for costume design](https://movies.allwomenstalk.com/reasons-why-this-awesome-woman-won-oscars/)
+- [words of wisdom for women](https://inspiration.allwomenstalk.com/pieces-of-wisdom-from-women-in-the-great-generation/)
 - [The Best Female Friendships from the Big Screen .....](https://bilbr.com/the-best-female-friendships-from-the-big-screen/)
-- [20 Inspirational Moments of 2015 That Made Every W...](https://lifestyle.allwomenstalk.com/inspirational-moments-of-that-made-every-woman-proud/)
+- [books about empowered women](https://books.allwomenstalk.com/feminist-books-thatll-make-you-feel-empowered/)
+- [Innovative Technologies Meant to Empower Women ...](https://lifestyle.allwomenstalk.com/innovative-technologies-meant-to-empower-women/)
+- [7 Funny Women Who Got Style Too ...](https://fashion.allwomenstalk.com/funny-women-who-got-style-too/)
 - [Women Who Inspire ...](https://allwomenstalk.com/women-who-inspire/)
 - [Powerful Women Who Dont Sacrifice Style to Be Stro...](https://fashion.allwomenstalk.com/powerful-women-who-dont-sacrifice-style-to-be-strong/)
 

@@ -42,16 +42,16 @@ I love chia seeds and add them to just about anything I can think of. I stir the
 
 ## Related Posts
 
-- [chromium vitamins benefits](https://health.allwomenstalk.com/reasons-to-use-chromium-as-a-supplement/)
-- [unexpected uses of beer](https://food.allwomenstalk.com/unexpected-benefits-of-beer-that-you-should-always-consider/)
 - [elaichi benefits for female](https://food.allwomenstalk.com/sweet-benefits-of-using-cardamom-in-your-foods/)
 - [yoghurt for digestion](https://food.allwomenstalk.com/reasons-kefir-is-better-than-yogurt-sometimes/)
 - [muller kefir smoothie](https://food.allwomenstalk.com/benefits-of-using-kefir-in-your-smoothies/)
 - [yard work as exercise](https://health.allwomenstalk.com/health-benefits-of-doing-yard-work/)
-- [minerals for healthy bones](https://health.allwomenstalk.com/essential-vitamins-and-minerals-for-healthy-bones/)
 - [camu camu extract benefits](https://food.allwomenstalk.com/amazing-benefits-of-camu-camu-that-you-should-know/)
 - [why do i need music all the time](https://music.allwomenstalk.com/amazing-benefits-of-listening-to-music-everyday/)
+- [minerals for healthy bones](https://health.allwomenstalk.com/essential-vitamins-and-minerals-for-healthy-bones/)
+- [chromium vitamins benefits](https://health.allwomenstalk.com/reasons-to-use-chromium-as-a-supplement/)
 - [cacao nibs caffeine](https://food.allwomenstalk.com/reasons-to-use-cacao-nibs-in-your-next-recipe/)
+- [unexpected uses of beer](https://food.allwomenstalk.com/unexpected-benefits-of-beer-that-you-should-always-consider/)
 - [7 Surprising Health Benefits of Almonds ...](https://health.allwomenstalk.com/surprising-health-benefits-of-almonds/)
 - [7 Health Benefits of Cherries ...](https://health.allwomenstalk.com/health-benefits-of-cherries/)
 

@@ -42,16 +42,16 @@ Do you shop at Sephora? I admit that it can be a little overwhelming to walk in 
 
 ## Related Posts
 
-- [7 Safe Uses for Expired Cosmetics ...](https://makeup.allwomenstalk.com/safe-uses-for-expired-cosmetics/)
-- [7 Beauty Products You Absolutely Need on Your Nigh...](https://beauty.allwomenstalk.com/beauty-products-you-absolutely-need-on-your-night-stand/)
-- [origins mascara](https://makeup.allwomenstalk.com/drugstore-mascaras-to-skip/)
-- [christmas themed beauty products](https://beauty.allwomenstalk.com/stores-that-sell-holiday-themed-beauty-products/)
-- [7 Lovely Beauty Products for Christmas ...](https://beauty.allwomenstalk.com/lovely-beauty-products-for-christmas/)
-- [The Unbelievable Evolution of Beauty Products ...](https://beauty.allwomenstalk.com/ways-beauty-products-have-improved-over-the-years/)
 - [7 Reasons to Spend Time in a Beauty Product Store ...](https://beauty.allwomenstalk.com/reasons-to-spend-time-in-a-beauty-product-store/)
 - [7 Hot Beauty Products Youll Want for 2015 ...](https://beauty.allwomenstalk.com/hot-beauty-products-youll-want-for/)
-- [cosmetic pen](https://beauty.allwomenstalk.com/beauty-products-in-pen-form/)
 - [7 Things to Know before Ordering Beauty Products O...](https://beauty.allwomenstalk.com/things-to-know-before-ordering-beauty-products-online/)
+- [7 Safe Uses for Expired Cosmetics ...](https://makeup.allwomenstalk.com/safe-uses-for-expired-cosmetics/)
+- [origins mascara](https://makeup.allwomenstalk.com/drugstore-mascaras-to-skip/)
+- [cosmetic pen](https://beauty.allwomenstalk.com/beauty-products-in-pen-form/)
+- [7 Beauty Products You Absolutely Need on Your Nigh...](https://beauty.allwomenstalk.com/beauty-products-you-absolutely-need-on-your-night-stand/)
+- [The Unbelievable Evolution of Beauty Products ...](https://beauty.allwomenstalk.com/ways-beauty-products-have-improved-over-the-years/)
+- [christmas themed beauty products](https://beauty.allwomenstalk.com/stores-that-sell-holiday-themed-beauty-products/)
+- [7 Lovely Beauty Products for Christmas ...](https://beauty.allwomenstalk.com/lovely-beauty-products-for-christmas/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 

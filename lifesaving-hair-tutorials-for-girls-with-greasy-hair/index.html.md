@@ -46,16 +46,16 @@ Hair is an important aspect of how one looks. Believe it or not, it actually com
 
 ## Related Posts
 
-- [mermaid hair treatment](https://hair.allwomenstalk.com/crave-mermaid-hair-heres-how-to-get-it/)
-- [cross country hairstyles](https://hair.allwomenstalk.com/hair-tips-that-runners-should-swear-by/)
-- [listerine for dandruff](https://hair.allwomenstalk.com/how-to-protect-your-hair-from-dandruff-in-the-winter/)
-- [why does my hair look better after sweating](https://hair.allwomenstalk.com/how-to-refresh-your-hair-after-a-sweaty-workout/)
 - [paris la maximalist eyeshadow blinged and brillian...](https://hair.allwomenstalk.com/rules-of-hair-salon-etiquette-every-girl-must-know/)
-- [how to make curly hair dry faster](https://hair.allwomenstalk.com/how-to-make-your-hair-air-dry-faster/)
 - [flawlesshalf](https://hair.allwomenstalk.com/how-to-create-a-flawless-half-bun/)
+- [how to make curly hair dry faster](https://hair.allwomenstalk.com/how-to-make-your-hair-air-dry-faster/)
+- [mermaid hair treatment](https://hair.allwomenstalk.com/crave-mermaid-hair-heres-how-to-get-it/)
+- [why does my hair look better after sweating](https://hair.allwomenstalk.com/how-to-refresh-your-hair-after-a-sweaty-workout/)
+- [listerine for dandruff](https://hair.allwomenstalk.com/how-to-protect-your-hair-from-dandruff-in-the-winter/)
+- [cross country hairstyles](https://hair.allwomenstalk.com/hair-tips-that-runners-should-swear-by/)
 - [how to make your hair dry](https://hair.allwomenstalk.com/tips-for-making-your-dry-hair-more-manageable/)
-- [heater for hair](https://hair.allwomenstalk.com/how-to-keep-your-hair-healthy-with-the-furnace-on/)
 - [embrace frizzy hair](https://hair.allwomenstalk.com/how-to-embrace-your-cute-curly-hair/)
+- [heater for hair](https://hair.allwomenstalk.com/how-to-keep-your-hair-healthy-with-the-furnace-on/)
 - [8 Hair Care Tips for Greasy Hair ...](https://hair.allwomenstalk.com/8-hair-care-tips-for-greasy-hair/)
 - [15 Best Shampoos for Girls with Oily Hair ...](https://allwomenstalk.com/12-best-shampoos-for-oily-hair/)
 

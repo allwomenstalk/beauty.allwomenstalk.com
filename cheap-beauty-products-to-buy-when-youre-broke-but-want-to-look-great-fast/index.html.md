@@ -56,16 +56,16 @@ By stocking up on these ingredients, I think you'll find that your beauty produc
 
 ## Related Posts
 
-- [lots of makeup](https://makeup.allwomenstalk.com/makeup-items-you-dont-need-to-spend-a-lot-on/)
 - [christmas themed beauty products](https://beauty.allwomenstalk.com/stores-that-sell-holiday-themed-beauty-products/)
-- [7 Ways Sephora is Stepping up the Beauty Game ...](https://beauty.allwomenstalk.com/ways-sephora-is-stepping-up-the-beauty-game/)
-- [7 Switches to Make in Your Beauty Products for Fal...](https://beauty.allwomenstalk.com/switches-to-make-in-your-beauty-products-for-fall/)
-- [The Unbelievable Evolution of Beauty Products ...](https://beauty.allwomenstalk.com/ways-beauty-products-have-improved-over-the-years/)
 - [is dollar store makeup good](https://makeup.allwomenstalk.com/reasons-to-try-dollar-store-make-up/)
 - [7 Lovely Beauty Products for Christmas ...](https://beauty.allwomenstalk.com/lovely-beauty-products-for-christmas/)
-- [7 Hot Beauty Products Youll Want for 2015 ...](https://beauty.allwomenstalk.com/hot-beauty-products-youll-want-for/)
+- [7 Switches to Make in Your Beauty Products for Fal...](https://beauty.allwomenstalk.com/switches-to-make-in-your-beauty-products-for-fall/)
 - [7 Safe Uses for Expired Cosmetics ...](https://makeup.allwomenstalk.com/safe-uses-for-expired-cosmetics/)
 - [Bring in the Fall Season with These Pumpkin Scente...](https://beauty.allwomenstalk.com/bring-in-the-fall-season-with-these-pumpkin-scented-beauty-products/)
+- [lots of makeup](https://makeup.allwomenstalk.com/makeup-items-you-dont-need-to-spend-a-lot-on/)
+- [7 Hot Beauty Products Youll Want for 2015 ...](https://beauty.allwomenstalk.com/hot-beauty-products-youll-want-for/)
+- [7 Ways Sephora is Stepping up the Beauty Game ...](https://beauty.allwomenstalk.com/ways-sephora-is-stepping-up-the-beauty-game/)
+- [The Unbelievable Evolution of Beauty Products ...](https://beauty.allwomenstalk.com/ways-beauty-products-have-improved-over-the-years/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 - [9 Ways to Be Pretty on the Cheap ...](https://allwomenstalk.com/9-ways-to-be-pretty-on-the-cheap/)
 

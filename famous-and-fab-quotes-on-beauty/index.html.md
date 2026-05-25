@@ -54,16 +54,16 @@ These famous beauty quotes can provide us with some inspiration and awareness in
 
 ## Related Posts
 
-- [cute pick me up quotes](https://lifestyle.allwomenstalk.com/amazing-pick-me-up-quotes/)
-- [quotes about healing a broken heart](https://love.allwomenstalk.com/quotes-to-help-heal-a-broken-heart/)
-- [loreal paris le stylo infinite sky](https://lifestyle.allwomenstalk.com/inspirational-life-quotes/)
 - [karl lagerfeld quote short men](https://fashion.allwomenstalk.com/infamous-quotes-by-karl-lagerfeld/)
+- [halfway there quote](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
+- [quotes about healing a broken heart](https://love.allwomenstalk.com/quotes-to-help-heal-a-broken-heart/)
+- [insperational poems](https://lifestyle.allwomenstalk.com/inspirational-poems/)
 - [audrey hepburn quote](https://celebs.allwomenstalk.com/of-my-favorite-audrey-hepburn-quotes/)
+- [friendships fade quotes](https://movies.allwomenstalk.com/tv-quotes-about-friendship/)
+- [cute pick me up quotes](https://lifestyle.allwomenstalk.com/amazing-pick-me-up-quotes/)
 - [funny coach quotes](https://lifestyle.allwomenstalk.com/funny-quotes-to-live-by/)
 - [professional advice quotes](https://lifestyle.allwomenstalk.com/inspiring-career-quotes/)
-- [halfway there quote](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
-- [insperational poems](https://lifestyle.allwomenstalk.com/inspirational-poems/)
-- [friendships fade quotes](https://movies.allwomenstalk.com/tv-quotes-about-friendship/)
+- [loreal paris le stylo infinite sky](https://lifestyle.allwomenstalk.com/inspirational-life-quotes/)
 - [10 Fabulous 5-Minute Beauty Tips ...](https://beauty.allwomenstalk.com/fabulous-minute-beauty-tips/)
 - [9 Classic Beauty Looks ...](https://allwomenstalk.com/9-classic-beauty-looks/)
 

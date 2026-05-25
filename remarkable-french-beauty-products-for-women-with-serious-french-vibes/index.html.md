@@ -103,16 +103,16 @@ Are you ready to add some French beauty products into your beauty routine? These
 
 ## Related Posts
 
-- [ultimate idol](https://makeup.allwomenstalk.com/the-ultimate-makeup-idol-for-girls-who-want-to-flaunt-their-darker-skin/)
-- [hair salon birthday party ideas](https://food.allwomenstalk.com/makeup-cakes-from-insta-every-beauty-addict-must-see/)
-- [is it ok to share mascara](https://makeup.allwomenstalk.com/makeup-products-to-never-ever-share-even-with-your-bff/)
-- [makeup tools list](https://makeup.allwomenstalk.com/must-have-makeup-tools-as-recommended-by-beauty-bloggers/)
-- [ulta setting spray](https://makeup.allwomenstalk.com/setting-sprays-for-ladies-who-want-their-makeup-to-last-forever/)
-- [eyebrow inspo](https://beauty.allwomenstalk.com/makeup-and-lifestyle-inspo-all-black-girls-need-in-their-life/)
 - [loreal paris color stylo timeless blue spark](https://makeup.allwomenstalk.com/beyond-gorg-fall-eyeshadow-palettes-for-girls-with-brown-eyes/)
 - [loreal color riche stylo primped](https://makeup.allwomenstalk.com/awesome-and-affordable-brands-for-makeup-lovers-on-a-budget/)
+- [ultimate idol](https://makeup.allwomenstalk.com/the-ultimate-makeup-idol-for-girls-who-want-to-flaunt-their-darker-skin/)
+- [ulta setting spray](https://makeup.allwomenstalk.com/setting-sprays-for-ladies-who-want-their-makeup-to-last-forever/)
 - [magical results](https://makeup.allwomenstalk.com/harry-potter-beauty-products-that-give-magical-results/)
 - [hottest instagram accounts 2023](https://beauty.allwomenstalk.com/hottest-beauty-products-all-influencers-are-secretly-using/)
+- [is it ok to share mascara](https://makeup.allwomenstalk.com/makeup-products-to-never-ever-share-even-with-your-bff/)
+- [eyebrow inspo](https://beauty.allwomenstalk.com/makeup-and-lifestyle-inspo-all-black-girls-need-in-their-life/)
+- [makeup tools list](https://makeup.allwomenstalk.com/must-have-makeup-tools-as-recommended-by-beauty-bloggers/)
+- [hair salon birthday party ideas](https://food.allwomenstalk.com/makeup-cakes-from-insta-every-beauty-addict-must-see/)
 - [7 Simply Enchanting Classic French Perfumes ...](https://perfumes.allwomenstalk.com/classic-french-perfumes/)
 - [New Beauty Products to Play with ...](https://allwomenstalk.com/new-beauty-products-to-play-with/)
 

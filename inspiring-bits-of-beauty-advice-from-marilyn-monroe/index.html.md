@@ -42,16 +42,16 @@ Don’t you think Marilyn Monroe was one of the most beautiful people of her tim
 
 ## Related Posts
 
-- [model with thick eyebrows cara](https://beauty.allwomenstalk.com/timeless-beauty-looks-thatll-always-be-in-style/)
 - [eco friendly beauty tips](https://beauty.allwomenstalk.com/amazing-eco-friendly-beauty-tips/)
-- [setting powder as dry shampoo](https://beauty.allwomenstalk.com/uses-for-baby-powder-in-your-beauty-routine/)
+- [books about cosmetology](https://books.allwomenstalk.com/must-read-books-for-a-career-in-the-beauty-industry/)
+- [skincare infographics](https://beauty.allwomenstalk.com/helpful-beauty-infographics-to-pore-over/)
+- [model with thick eyebrows cara](https://beauty.allwomenstalk.com/timeless-beauty-looks-thatll-always-be-in-style/)
 - [aerosmith fashion](https://beauty.allwomenstalk.com/beauty-secrets-from-aerosmiths-steven-tyler/)
-- [splendid beauty salon](https://beauty.allwomenstalk.com/splendid-beauty-tips-for-redheads/)
 - [uses of wax](https://beauty.allwomenstalk.com/uses-for-wax-in-the-beauty-industry/)
 - [melissa mccarthy ginger](https://beauty.allwomenstalk.com/beauty-lessons-we-can-learn-from-melissa-mccarthy/)
 - [women with beautiful hair](https://beauty.allwomenstalk.com/beauty-tips-for-women-with-dark-hair/)
-- [books about cosmetology](https://books.allwomenstalk.com/must-read-books-for-a-career-in-the-beauty-industry/)
-- [skincare infographics](https://beauty.allwomenstalk.com/helpful-beauty-infographics-to-pore-over/)
+- [splendid beauty salon](https://beauty.allwomenstalk.com/splendid-beauty-tips-for-redheads/)
+- [setting powder as dry shampoo](https://beauty.allwomenstalk.com/uses-for-baby-powder-in-your-beauty-routine/)
 - [Beauty Tips from the Pros ...](https://allwomenstalk.com/beauty-tips-from-the-pros/)
 - [8 Makeup Tips from Celebrity Icons ...](https://makeup.allwomenstalk.com/makeup-tips-from-celebrity-icons/)
 

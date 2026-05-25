@@ -188,15 +188,15 @@ India Oneill ([@india_oneill](https://www.facebook.com/unsupportedbrowser)) will
 
 ## Related Posts
 
-- [fast and easy hairstyles for girls](https://hair.allwomenstalk.com/super-quick-and-easy-hairstyles-for-those-lazy-days-every-girl-has/)
 - [braid mohawk hairstyles](https://hair.allwomenstalk.com/unusual-yet-jaw-droppingly-stunning-braid-hairstyles-to-try-asap/)
-- [hairstyles for thick hair for women](https://hair.allwomenstalk.com/quick-and-cute-hairstyles-for-girls-with-thick-hair-2/)
-- [out of bed hairstyle](https://hair.allwomenstalk.com/roll-out-of-bed-hairstyles-for-days-you-need-the-extra-zzzs/)
-- [upside down braids into buns](https://hair.allwomenstalk.com/gorgeous-bun-styles-to-try-this-fall/)
-- [hair tutorials for girls](https://hair.allwomenstalk.com/hair-tutorials-for-girls-who-want-a-change-of-style/)
-- [hair ideas for girls](https://hair.allwomenstalk.com/easy-peasy-hairstyles-for-girls-who-need-to-keep-their-hair-out-of-their-face/)
-- [bangs oval face shape](https://hair.allwomenstalk.com/stunning-hairstyles-to-enhance-your-oval-face/)
 - [girl with ombre hair](https://hair.allwomenstalk.com/ombre-hair-hacks-for-girls-wanting-the-look-without-the-dye/)
+- [upside down braids into buns](https://hair.allwomenstalk.com/gorgeous-bun-styles-to-try-this-fall/)
+- [hair ideas for girls](https://hair.allwomenstalk.com/easy-peasy-hairstyles-for-girls-who-need-to-keep-their-hair-out-of-their-face/)
+- [hairstyles for thick hair for women](https://hair.allwomenstalk.com/quick-and-cute-hairstyles-for-girls-with-thick-hair-2/)
+- [hair tutorials for girls](https://hair.allwomenstalk.com/hair-tutorials-for-girls-who-want-a-change-of-style/)
+- [out of bed hairstyle](https://hair.allwomenstalk.com/roll-out-of-bed-hairstyles-for-days-you-need-the-extra-zzzs/)
+- [fast and easy hairstyles for girls](https://hair.allwomenstalk.com/super-quick-and-easy-hairstyles-for-those-lazy-days-every-girl-has/)
+- [bangs oval face shape](https://hair.allwomenstalk.com/stunning-hairstyles-to-enhance-your-oval-face/)
 - [crescent bangs](https://hair.allwomenstalk.com/beautiful-hairstyles-to-show-off-your-square-face/)
 - [151 Stunning Looks from a True Hair and Beauty Mav...](https://hair.allwomenstalk.com/stunning-looks-from-a-true-hair-and-beauty-maven-youll-want-to-copy/)
 - [80 Breathtaking Hair Inspo for Girls with Long Fri...](https://hair.allwomenstalk.com/breathtaking-hair-inspo-for-girls-with-long-frizzy-hair/)

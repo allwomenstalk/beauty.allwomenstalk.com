@@ -322,15 +322,15 @@ With homemade beauty products you can play around with and tweak the recipes to 
 ## Related Posts
 
 - [does one size fit all](https://skincare.allwomenstalk.com/reasons-why-skincare-isnt-one-size-fits-all/)
-- [ingredients in face masks](https://skincare.allwomenstalk.com/ingredients-to-look-for-in-a-facial-mask/)
-- [best face wash powder](https://skincare.allwomenstalk.com/want-clear-skin-try-the-best-brands-of-powder-face-wash/)
-- [what you need for a relaxing bath](https://beauty.allwomenstalk.com/essentials-for-a-perfect-and-relaxing-bath/)
 - [winter green scrubs](https://skincare.allwomenstalk.com/bye-bye-winter-skin-diy-sugar-scrubs-to-try/)
-- [best skincare books](https://skincare.allwomenstalk.com/skincare-books-that-will-change-your-life/)
-- [diy baby bubble bath](https://beauty.allwomenstalk.com/you-simply-have-to-pamper-yourself-with-these-diy-bubble-bath-recipes/)
-- [shaving gel substitute](https://beauty.allwomenstalk.com/products-that-are-great-alternatives-to-shaving-cream/)
 - [calamine lotion manufacturer](https://diy.allwomenstalk.com/alternate-uses-for-moisturizer-to-get-the-most-from-your-money/)
+- [what you need for a relaxing bath](https://beauty.allwomenstalk.com/essentials-for-a-perfect-and-relaxing-bath/)
+- [ingredients in face masks](https://skincare.allwomenstalk.com/ingredients-to-look-for-in-a-facial-mask/)
+- [shaving gel substitute](https://beauty.allwomenstalk.com/products-that-are-great-alternatives-to-shaving-cream/)
+- [best face wash powder](https://skincare.allwomenstalk.com/want-clear-skin-try-the-best-brands-of-powder-face-wash/)
+- [diy baby bubble bath](https://beauty.allwomenstalk.com/you-simply-have-to-pamper-yourself-with-these-diy-bubble-bath-recipes/)
 - [selling natural products](https://beauty.allwomenstalk.com/beauty-companies-that-sell-natural-products/)
+- [best skincare books](https://skincare.allwomenstalk.com/skincare-books-that-will-change-your-life/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 - [7 Cult-Classic Beauty Products ...](https://allwomenstalk.com/7-cult-classic-beauty-products/)
 

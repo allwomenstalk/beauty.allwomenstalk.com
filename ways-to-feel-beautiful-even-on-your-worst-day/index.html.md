@@ -42,15 +42,15 @@ What makes you feel your most beautiful? Once my youngest son caught his breath 
 
 ## Related Posts
 
-- [warren buffett famous quotes](https://inspiration.allwomenstalk.com/quotes-from-warren-buffett-that-will-teach-you-how-to-be-successful/)
-- [fashion best quotes](https://fashion.allwomenstalk.com/fashion-quotes-to-inspire-your-personal-style/)
-- [value life quotes](https://inspiration.allwomenstalk.com/quotes-to-convince-you-your-life-is-valuable/)
 - [book quotes about new year](https://inspiration.allwomenstalk.com/literary-quotes-to-inspire-your-new-year/)
-- [classy or trashy](https://inspiration.allwomenstalk.com/quotes-to-keep-you-classy-sassy-but-never-trashy/)
-- [dont get angry on me quotes](https://funny.allwomenstalk.com/quotes-about-anger-that-will-calm-you-down-with-laughter/)
 - [stephen king qoutes](https://movies.allwomenstalk.com/inspirational-quotes-from-stephen-king/)
-- [famous quotes by chinese philosopher](https://inspiration.allwomenstalk.com/chinese-philosophical-quotes-to-help-celebrate-the-chinese-new-year/)
 - [life lessons speech](https://inspiration.allwomenstalk.com/great-speeches-that-will-teach-you-valuable-life-lessons/)
+- [fashion best quotes](https://fashion.allwomenstalk.com/fashion-quotes-to-inspire-your-personal-style/)
+- [famous quotes by chinese philosopher](https://inspiration.allwomenstalk.com/chinese-philosophical-quotes-to-help-celebrate-the-chinese-new-year/)
+- [dont get angry on me quotes](https://funny.allwomenstalk.com/quotes-about-anger-that-will-calm-you-down-with-laughter/)
+- [value life quotes](https://inspiration.allwomenstalk.com/quotes-to-convince-you-your-life-is-valuable/)
+- [classy or trashy](https://inspiration.allwomenstalk.com/quotes-to-keep-you-classy-sassy-but-never-trashy/)
+- [warren buffett famous quotes](https://inspiration.allwomenstalk.com/quotes-from-warren-buffett-that-will-teach-you-how-to-be-successful/)
 - [words to describe a confident person](https://inspiration.allwomenstalk.com/powerful-words-that-confident-people-always-use/)
 - [Beauty Takes Work](https://allwomenstalk.com/beauty-takes-work/)
 - [Have a Face You Can Be Proud of](https://allwomenstalk.com/have-a-face-you-can-be-proud-of/)

@@ -56,16 +56,16 @@ As the late and great fashion icon Coco Chanel once stated, "fashion fades, only
 
 ## Related Posts
 
-- [fire in belly quotes](https://inspiration.allwomenstalk.com/quotes-about-power-to-put-some-fire-in-your-belly/)
-- [elizabeth taylor famous quotes](https://inspiration.allwomenstalk.com/compelling-quotes-by-elizabeth-taylor/)
-- [did hazel and augustus sleep together](https://books.allwomenstalk.com/quotes-from-the-fault-in-our-stars-that-will-become-embedded-in-your-mind-forever/)
 - [quotes from anna karenina](https://love.allwomenstalk.com/of-the-most-wonderful-quotes-about-love/)
-- [ted talk on creativity](https://inspiration.allwomenstalk.com/ted-talks-about-creativity-that-will-inspire-you/)
-- [simple quotes to live by](https://inspiration.allwomenstalk.com/simple-quotes-to-live-by/)
-- [passion anais nin quotes](https://inspiration.allwomenstalk.com/captivating-quotes-by-anais-nin-that-will-change-your-life/)
-- [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
+- [fire in belly quotes](https://inspiration.allwomenstalk.com/quotes-about-power-to-put-some-fire-in-your-belly/)
 - [teenage friendship quotes](https://teen.allwomenstalk.com/life-quotes-for-teenagers-to-abide-by/)
+- [did hazel and augustus sleep together](https://books.allwomenstalk.com/quotes-from-the-fault-in-our-stars-that-will-become-embedded-in-your-mind-forever/)
+- [simple quotes to live by](https://inspiration.allwomenstalk.com/simple-quotes-to-live-by/)
 - [einstein quotes about change](https://inspiration.allwomenstalk.com/most-inspiring-quotes-from-albert-einstein-to-help-you-get-back-on-your-feet/)
+- [elizabeth taylor famous quotes](https://inspiration.allwomenstalk.com/compelling-quotes-by-elizabeth-taylor/)
+- [ted talk on creativity](https://inspiration.allwomenstalk.com/ted-talks-about-creativity-that-will-inspire-you/)
+- [when you find someone as weird as you quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-that-help-you-admire-your-quirks/)
+- [passion anais nin quotes](https://inspiration.allwomenstalk.com/captivating-quotes-by-anais-nin-that-will-change-your-life/)
 - [9 Tips on How to Be More Fabulous Everyday ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-be-more-fabulous-everyday/)
 - [13 Tips on How to Glam up in under 15 Minutes ...](https://allwomenstalk.com/13-tips-on-how-to-glam-up-under-15-minutes/)
 

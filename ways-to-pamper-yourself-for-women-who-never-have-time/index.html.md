@@ -42,16 +42,16 @@ We buy other people presents all the time, so why don't we spoil ourselves more 
 
 ## Related Posts
 
-- [is being bossy a bad thing](https://lifestyle.allwomenstalk.com/this-is-why-its-better-to-be-a-bossy-girl/)
-- [make up 30s](https://lifestyle.allwomenstalk.com/the-daily-struggles-of-being-a-woman-in-her-30s/)
 - [keep him busy](https://inspiration.allwomenstalk.com/simple-ways-to-keep-busy-and-entertained-for-girls-who-are-always-bored/)
-- [can tall girls be cute](https://lifestyle.allwomenstalk.com/the-best-things-about-being-a-tall-girl/)
-- [its ok to be bigger than your partner](https://love.allwomenstalk.com/tips-for-tall-girls-who-are-bigger-than-their-boyfriends/)
+- [car for girls](https://lifestyle.allwomenstalk.com/tips-for-girls-who-are-buying-their-very-first-car/)
+- [is being bossy a bad thing](https://lifestyle.allwomenstalk.com/this-is-why-its-better-to-be-a-bossy-girl/)
 - [teen candid dressing room](https://fashion.allwomenstalk.com/thoughts-weve-all-had-while-stuck-in-the-dressing-room/)
 - [women classic style](https://fashion.allwomenstalk.com/dont-make-these-style-mistakes-if-youre-a-petite-woman/)
-- [car for girls](https://lifestyle.allwomenstalk.com/tips-for-girls-who-are-buying-their-very-first-car/)
+- [can tall girls be cute](https://lifestyle.allwomenstalk.com/the-best-things-about-being-a-tall-girl/)
 - [depressed makeup look](https://inspiration.allwomenstalk.com/tips-for-those-who-are-not-depressed-but-feel-kinda-lost-in-life/)
 - [ralph lauren singles day](https://lifestyle.allwomenstalk.com/things-successful-women-do-at-work-every-day/)
+- [its ok to be bigger than your partner](https://love.allwomenstalk.com/tips-for-tall-girls-who-are-bigger-than-their-boyfriends/)
+- [make up 30s](https://lifestyle.allwomenstalk.com/the-daily-struggles-of-being-a-woman-in-her-30s/)
 - [3 Tips to Make Time for Myself ...](https://allwomenstalk.com/how-to-make-time-for-yourself/)
 - [7 Ways to Get Me Time ...](https://allwomenstalk.com/7-ways-to-get-me-time/)
 

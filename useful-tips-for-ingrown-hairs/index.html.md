@@ -44,16 +44,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/14552427/via/ljubi
 
 ## Related Posts
 
-- [bad hair do](https://hair.allwomenstalk.com/ways-to-disguise-a-bad-hair-day/)
-- [dying my hair blonde](https://hair.allwomenstalk.com/things-to-consider-before-dying-your-hair-blond/)
 - [styling blunt bangs](https://hair.allwomenstalk.com/tips-for-maintaining-blunt-bangs/)
-- [how to keep bangs from curling in humidity](https://hair.allwomenstalk.com/ways-to-keep-your-hair-perfectly-straight-despite-weather/)
-- [how to sock bun](https://hair.allwomenstalk.com/tips-for-creating-the-perfect-sock-bun/)
 - [bad haircut picture](https://hair.allwomenstalk.com/tips-for-avoiding-a-bad-haircut/)
-- [is a blowout bad for your hair](https://hair.allwomenstalk.com/facts-you-should-know-about-a-brazilian-blow-out/)
 - [style thinning hair](https://hair.allwomenstalk.com/sensational-style-tips-for-thinning-hair/)
-- [how to hide thinning hair](https://hair.allwomenstalk.com/ways-to-hide-thinning-hair/)
+- [is a blowout bad for your hair](https://hair.allwomenstalk.com/facts-you-should-know-about-a-brazilian-blow-out/)
+- [bad hair do](https://hair.allwomenstalk.com/ways-to-disguise-a-bad-hair-day/)
+- [how to sock bun](https://hair.allwomenstalk.com/tips-for-creating-the-perfect-sock-bun/)
+- [how to keep bangs from curling in humidity](https://hair.allwomenstalk.com/ways-to-keep-your-hair-perfectly-straight-despite-weather/)
 - [7 on sides haircut](https://hair.allwomenstalk.com/tips-for-his-perfect-haircut/)
+- [how to hide thinning hair](https://hair.allwomenstalk.com/ways-to-hide-thinning-hair/)
+- [dying my hair blonde](https://hair.allwomenstalk.com/things-to-consider-before-dying-your-hair-blond/)
 - [7 Tips on Preventing Razor Bumps ...](https://skincare.allwomenstalk.com/7-tips-on-preventing-razor-bumps/)
 - [7 Tips on Shaving Your Bikini Area ...](https://skincare.allwomenstalk.com/7-tips-on-shaving-your-bikini-area/)
 

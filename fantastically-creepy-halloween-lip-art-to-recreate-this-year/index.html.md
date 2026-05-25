@@ -44,16 +44,16 @@ Which of these are your favorites?
 
 ## Related Posts
 
-- [male celebrity costumes](https://celebs.allwomenstalk.com/halloween-roundup-our-favorite-celebrity-costumes/)
-- [ttyuio](https://movies.allwomenstalk.com/spooky-movies-that-will-get-you-in-the-halloween-spirit/)
 - [80s cartoon character costumes](https://fashion.allwomenstalk.com/fun-70s-and-80s-inspired-halloween-costumes/)
-- [spooky cookies](https://desserts.allwomenstalk.com/spooky-cookies-to-bake-for-your-halloween-party/)
-- [creative halloween snacks](https://food.allwomenstalk.com/creative-halloween-party-snacks-to-create-this-week/)
-- [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
-- [cat jack-o-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
-- [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
 - [cute sugar skull makeup](https://makeup.allwomenstalk.com/hauntingly-beautiful-sugar-skull-makeup-found-on-pinterest/)
+- [cat jack-o-lanterns](https://parenting.allwomenstalk.com/spooky-jack-o-lanterns-you-can-carve-with-your-kids/)
+- [scarecrow activities](https://diy.allwomenstalk.com/cute-homemade-scarecrows-for-fall-this-year/)
+- [creative halloween snacks](https://food.allwomenstalk.com/creative-halloween-party-snacks-to-create-this-week/)
+- [spooky cookies](https://desserts.allwomenstalk.com/spooky-cookies-to-bake-for-your-halloween-party/)
+- [male celebrity costumes](https://celebs.allwomenstalk.com/halloween-roundup-our-favorite-celebrity-costumes/)
+- [halloween meals](https://food.allwomenstalk.com/delicious-halloween-food-ideas-for-your-celebration/)
 - [cookie monster no carve pumpkin](https://diy.allwomenstalk.com/no-carve-pumpkins-for-halloween/)
+- [ttyuio](https://movies.allwomenstalk.com/spooky-movies-that-will-get-you-in-the-halloween-spirit/)
 - [12 DIY Halloween Headpieces to Make ...](https://diy.allwomenstalk.com/diy-halloween-headpieces-to-make/)
 - [10 Hauntingly Good Halloween Makeup Tutorials ...](https://beauty.allwomenstalk.com/hauntingly-good-halloween-makeup-tutorials/)
 

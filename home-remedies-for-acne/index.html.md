@@ -43,16 +43,16 @@ There you have it, 7 easy to use, fabulous home remedies for acne. Some of these
 
 ## Related Posts
 
-- [ideas to drink more water](https://health.allwomenstalk.com/ways-to-drink-more-water/)
-- [what can make your teeth whiter](https://beauty.allwomenstalk.com/natural-ways-to-whiten-your-teeth/)
-- [pregnant women candle](https://parenting.allwomenstalk.com/remedies-for-morning-sickness/)
+- [does vinegar help sunburn](https://skincare.allwomenstalk.com/soothing-and-natural-ways-to-relieve-sunburn/)
+- [ocean potion with lidocaine](https://skincare.allwomenstalk.com/sure-fire-ways-to-deal-with-sunburn/)
 - [anti yeast foods](https://food.allwomenstalk.com/unique-foods-to-fight-off-candida-yeast-in-the-body-fast/)
 - [seaweed baths for weight loss](https://health.allwomenstalk.com/incredible-natural-ways-to-fight-cellulite/)
-- [herbs for yeast overgrowth](https://health.allwomenstalk.com/magical-herbs-to-fight-yeast-in-the-body/)
-- [does vinegar help sunburn](https://skincare.allwomenstalk.com/soothing-and-natural-ways-to-relieve-sunburn/)
+- [pregnant women candle](https://parenting.allwomenstalk.com/remedies-for-morning-sickness/)
 - [messenger bag hurts shoulder](https://bags.allwomenstalk.com/ways-to-reduce-neck-and-shoulder-pain-caused-by-a-heavy-handbag/)
-- [ocean potion with lidocaine](https://skincare.allwomenstalk.com/sure-fire-ways-to-deal-with-sunburn/)
+- [ideas to drink more water](https://health.allwomenstalk.com/ways-to-drink-more-water/)
 - [whole foods rescue remedy](https://health.allwomenstalk.com/bach-flower-remedies-groups-and-remedy-options/)
+- [herbs for yeast overgrowth](https://health.allwomenstalk.com/magical-herbs-to-fight-yeast-in-the-body/)
+- [what can make your teeth whiter](https://beauty.allwomenstalk.com/natural-ways-to-whiten-your-teeth/)
 - [5 Best Emergency Remedies for Pimples ...](https://allwomenstalk.com/5-best-emergency-remedies-for-pimples/)
 - [12 Best Home Remedies for Pimples ...](https://allwomenstalk.com/12-best-home-remedies-for-pimples/)
 

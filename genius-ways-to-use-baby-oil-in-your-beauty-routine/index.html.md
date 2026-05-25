@@ -36,16 +36,16 @@ If you suffer from chapped lips, then you can actually use baby oil to ease that
 
 ## Related Posts
 
-- [Back to the Beauty Grind](https://allwomenstalk.com/back-to-the-beauty-grind/)
 - [Medical Spas - Not Always Making You More Beautifu...](https://allwomenstalk.com/medical-spas-not-always-making-you-more-beautiful/)
-- [teri hatchers](https://allwomenstalk.com/teri-hatchers-beauty-tip/)
 - [frugal beauty](https://allwomenstalk.com/frugal-beauty-tips/)
-- [wizard mask dry eye](https://beauty.allwomenstalk.com/tips-for-most-beautiful-healthy-eyes/)
-- [bravco chicago](https://allwomenstalk.com/chicago-best-beauty-school-salons-shops/)
-- [site:allwomenstalk.com](https://allwomenstalk.com/botox-beyond-beauty-benefits-women/)
-- [Benefit Beauty 101 ...](https://allwomenstalk.com/benefit-beauty-101/)
-- [Secret Beauty Pageant Tips](https://allwomenstalk.com/secret-beauty-pageant-tips/)
 - [loreal color riche stylo smoky shadow hollywood ic...](https://beauty.allwomenstalk.com/diy-celebrity-beauty-hacks-for-10-or-less/)
+- [bravco chicago](https://allwomenstalk.com/chicago-best-beauty-school-salons-shops/)
+- [wizard mask dry eye](https://beauty.allwomenstalk.com/tips-for-most-beautiful-healthy-eyes/)
+- [Benefit Beauty 101 ...](https://allwomenstalk.com/benefit-beauty-101/)
+- [teri hatchers](https://allwomenstalk.com/teri-hatchers-beauty-tip/)
+- [site:allwomenstalk.com](https://allwomenstalk.com/botox-beyond-beauty-benefits-women/)
+- [Back to the Beauty Grind](https://allwomenstalk.com/back-to-the-beauty-grind/)
+- [Secret Beauty Pageant Tips](https://allwomenstalk.com/secret-beauty-pageant-tips/)
 - [7 DIY Beauty Treatments to Try ...](https://beauty.allwomenstalk.com/diy-beauty-treatments-to-try/)
 - [7 Cheap Household Products You Can Use for Beauty ...](https://beauty.allwomenstalk.com/cheap-household-products-you-can-use-for-beauty/)
 

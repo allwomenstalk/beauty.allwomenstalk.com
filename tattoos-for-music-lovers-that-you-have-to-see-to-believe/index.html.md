@@ -219,16 +219,16 @@ Are you feeling the beat? Which of these tattoos do you love?
 
 ## Related Posts
 
-- [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
-- [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
 - [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
-- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
-- [how to write a song about your crush](https://music.allwomenstalk.com/songs-thatll-make-you-think-of-your-crush/)
-- [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
-- [supporting song](https://music.allwomenstalk.com/songs-thatll-help-you-become-a-better-person/)
-- [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
 - [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
 - [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
+- [songs of self empowerment](https://music.allwomenstalk.com/empowering-songs-thatll-make-you-feel-badass/)
+- [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
+- [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
+- [anthony kiedis workout](https://books.allwomenstalk.com/music-lovers-must-have-these-books-on-their-shelves/)
+- [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
+- [how to write a song about your crush](https://music.allwomenstalk.com/songs-thatll-make-you-think-of-your-crush/)
+- [supporting song](https://music.allwomenstalk.com/songs-thatll-help-you-become-a-better-person/)
 - [10 Celebrity Pictures You Have to See ...](https://allwomenstalk.com/10-celebrity-pictures-you-have-to-see/)
 - [8 Fab Celeb Tattoos ...](https://allwomenstalk.com/8-fab-celeb-tattoos/)
 

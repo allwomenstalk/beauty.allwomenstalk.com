@@ -56,16 +56,16 @@ In conclusion, there are more than a few things from our favorite Disney princes
 
 ## Related Posts
 
-- [current blues guitarists](https://music.allwomenstalk.com/amazing-female-blues-guitarists-you-have-to-hear/)
-- [alicia florrick mother](https://teen.allwomenstalk.com/reasons-why-alicia-florrick-should-be-a-role-model-for-young-women/)
+- [oporah winfrey](https://inspiration.allwomenstalk.com/successful-women-to-inspire-you-in-your-career/)
 - [original disney princess movies in order](https://beauty.allwomenstalk.com/unrealistic-beauty-expectations-from-disney-princesses/)
-- [female serial killers in the 1800s](https://lifestyle.allwomenstalk.com/freakiest-female-serial-killers/)
+- [alicia florrick mother](https://teen.allwomenstalk.com/reasons-why-alicia-florrick-should-be-a-role-model-for-young-women/)
+- [current blues guitarists](https://music.allwomenstalk.com/amazing-female-blues-guitarists-you-have-to-hear/)
 - [female guitar artists](https://music.allwomenstalk.com/most-rocking-female-guitarists/)
 - [super female heroes](https://funny.allwomenstalk.com/female-super-heroes-that-seriously-kick-butt/)
+- [female serial killers in the 1800s](https://lifestyle.allwomenstalk.com/freakiest-female-serial-killers/)
 - [famous female journalists](https://books.allwomenstalk.com/female-journalists-from-the-past-and-present/)
-- [female mom remember](https://lifestyle.allwomenstalk.com/wonderful-women-to-remember-on-mothers-day/)
-- [oporah winfrey](https://inspiration.allwomenstalk.com/successful-women-to-inspire-you-in-your-career/)
 - [famous fictional women](https://inspiration.allwomenstalk.com/of-the-best-fictional-heroines/)
+- [female mom remember](https://lifestyle.allwomenstalk.com/wonderful-women-to-remember-on-mothers-day/)
 - [7 Best Beauty Blogs ...](https://allwomenstalk.com/7-best-beauty-blogs/)
 - [The 7 Most Inspiring Women Celebrities ...](https://allwomenstalk.com/the-7-most-inspiring-women-celebrities/)
 

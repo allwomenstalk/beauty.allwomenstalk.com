@@ -42,16 +42,16 @@ Did you know your eyebrows were so fascinating? Will you pay more attention to t
 
 ## Related Posts
 
-- [fun facts about mount everest](https://travel.allwomenstalk.com/facts-about-mount-everest/)
 - [victoria secret facts](https://celebs.allwomenstalk.com/surprising-facts-about-victorias-secret-models-you-wouldnt-believe/)
-- [the rockettes nyc](https://music.allwomenstalk.com/interesting-facts-about-new-york-citys-radio-city-music-hall-and-the-rockettes/)
-- [does coke clean corrosion](https://diy.allwomenstalk.com/shocking-uses-for-coca-cola/)
-- [the history of eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-eyebrows-through-the-ages/)
-- [mccormick fleur de sel](https://food.allwomenstalk.com/things-to-know-about-fleur-de-sel/)
-- [facts about smiling](https://health.allwomenstalk.com/interesting-facts-about-smiling/)
-- [shocking food facts](https://food.allwomenstalk.com/shocking-facts-about-genetically-modified-food/)
 - [new orleans facts](https://lifestyle.allwomenstalk.com/facts-about-the-history-of-the-new-orleans-mardi-gras-celebrations/)
+- [shocking food facts](https://food.allwomenstalk.com/shocking-facts-about-genetically-modified-food/)
+- [the rockettes nyc](https://music.allwomenstalk.com/interesting-facts-about-new-york-citys-radio-city-music-hall-and-the-rockettes/)
+- [fun facts about mount everest](https://travel.allwomenstalk.com/facts-about-mount-everest/)
+- [does coke clean corrosion](https://diy.allwomenstalk.com/shocking-uses-for-coca-cola/)
+- [mccormick fleur de sel](https://food.allwomenstalk.com/things-to-know-about-fleur-de-sel/)
 - [banned boy meets world episode](https://movies.allwomenstalk.com/little-known-facts-about-boy-meets-world/)
+- [facts about smiling](https://health.allwomenstalk.com/interesting-facts-about-smiling/)
+- [the history of eyebrows](https://beauty.allwomenstalk.com/interesting-things-about-eyebrows-through-the-ages/)
 - [10 Beautiful Eyebrows Tips ...](https://allwomenstalk.com/beautiful-eyebrows-tips/)
 - [7 Tips for Perfectly Groomed Eyebrows ...](https://allwomenstalk.com/7-tips-for-perfectly-groomed-eyebrows/)
 

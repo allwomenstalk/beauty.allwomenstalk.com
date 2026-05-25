@@ -70,15 +70,15 @@ These products will help you look fabulous while keeping fit. What else do you k
 
 ## Related Posts
 
-- [signs youre not photogenic](https://makeup.allwomenstalk.com/signs-you-have-a-serious-shopping-addiction/)
-- [makeup items every girl needs](https://makeup.allwomenstalk.com/every-girl-needs-these-makeup-products-in-her-bag/)
-- [loreal paris riche le eye shadow couture](https://makeup.allwomenstalk.com/heres-what-you-can-do-when-your-fav-makeup-product-is-discontinued/)
-- [best organic makeup](https://makeup.allwomenstalk.com/the-best-organic-makeup-brands-that-cant-be-beat/)
-- [how to look pretty for school](https://beauty.allwomenstalk.com/beauty-products-you-should-always-bring-to-school/)
 - [money makeup](https://makeup.allwomenstalk.com/makeup-products-you-dont-need-to-spend-a-load-of-money-on-or-do-you/)
+- [signs youre not photogenic](https://makeup.allwomenstalk.com/signs-you-have-a-serious-shopping-addiction/)
+- [how to look pretty for school](https://beauty.allwomenstalk.com/beauty-products-you-should-always-bring-to-school/)
+- [best organic makeup](https://makeup.allwomenstalk.com/the-best-organic-makeup-brands-that-cant-be-beat/)
+- [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
+- [makeup items every girl needs](https://makeup.allwomenstalk.com/every-girl-needs-these-makeup-products-in-her-bag/)
 - [colormates compact makeup](https://makeup.allwomenstalk.com/the-best-makeup-products-that-only-cost-a-dollar/)
 - [best natural makeup](https://makeup.allwomenstalk.com/get-your-eco-chic-on-with-these-very-best-organic-makeup-brands/)
-- [best cruelty-free makeup brands](https://makeup.allwomenstalk.com/be-a-friend-to-the-animals-with-these-cruelty-free-makeup-brands/)
+- [loreal paris riche le eye shadow couture](https://makeup.allwomenstalk.com/heres-what-you-can-do-when-your-fav-makeup-product-is-discontinued/)
 - [best beauty box](https://beauty.allwomenstalk.com/the-best-beauty-subscription-boxes/)
 - [7 Fabulous Make-up Bags ...](https://bags.allwomenstalk.com/7-fabulous-make-up-bags/)
 - [7 Must-Have Beauty Products to Keep at Work ...](https://beauty.allwomenstalk.com/must-have-beauty-products-to-keep-at-work/)

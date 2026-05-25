@@ -102,16 +102,16 @@ Which one would you get? What other Latin words would make good tattoos?
 
 ## Related Posts
 
-- [statement necklaces for black dress](https://jewelry.allwomenstalk.com/statement-necklaces-thatll-add-sparkle-to-your-wardrobe/)
-- [pirate tattoos](https://beauty.allwomenstalk.com/majestic-mermaid-tattoos-meant-to-make-you-smile/)
-- [the struggle is real tattoo](https://beauty.allwomenstalk.com/these-one-line-tattoos-to-give-you-ink-inspiration/)
-- [irish memorial tattoos](https://beauty.allwomenstalk.com/memorial-tattoos-for-anyone-youve-loved-and-lost/)
-- [paris riche stylo blinged and](https://jewelry.allwomenstalk.com/fab-bling-inspired-by-the-star-wars-franchise/)
-- [ear cuffs meaning](https://jewelry.allwomenstalk.com/sexy-ear-cuffs-for-women-without-any-piercings/)
-- [statement necklace meaning](https://jewelry.allwomenstalk.com/statement-necklaces-to-add-umph-to-any-outfit/)
-- [little prince jewelry](https://jewelry.allwomenstalk.com/pieces-of-jewelry-inspired-by-books/)
-- [fergie engagement ring](https://jewelry.allwomenstalk.com/unique-celeb-engagement-rings-you-should-be-jealous-of/)
 - [cutest tree](https://jewelry.allwomenstalk.com/heres-the-cutest-holiday-tree-themed-jewelry-out-there/)
+- [statement necklaces for black dress](https://jewelry.allwomenstalk.com/statement-necklaces-thatll-add-sparkle-to-your-wardrobe/)
+- [the struggle is real tattoo](https://beauty.allwomenstalk.com/these-one-line-tattoos-to-give-you-ink-inspiration/)
+- [ear cuffs meaning](https://jewelry.allwomenstalk.com/sexy-ear-cuffs-for-women-without-any-piercings/)
+- [fergie engagement ring](https://jewelry.allwomenstalk.com/unique-celeb-engagement-rings-you-should-be-jealous-of/)
+- [irish memorial tattoos](https://beauty.allwomenstalk.com/memorial-tattoos-for-anyone-youve-loved-and-lost/)
+- [pirate tattoos](https://beauty.allwomenstalk.com/majestic-mermaid-tattoos-meant-to-make-you-smile/)
+- [statement necklace meaning](https://jewelry.allwomenstalk.com/statement-necklaces-to-add-umph-to-any-outfit/)
+- [paris riche stylo blinged and](https://jewelry.allwomenstalk.com/fab-bling-inspired-by-the-star-wars-franchise/)
+- [little prince jewelry](https://jewelry.allwomenstalk.com/pieces-of-jewelry-inspired-by-books/)
 - [Tattoo You ...](https://allwomenstalk.com/tattoo-you/)
 - [8 Fab Celeb Tattoos ...](https://allwomenstalk.com/8-fab-celeb-tattoos/)
 

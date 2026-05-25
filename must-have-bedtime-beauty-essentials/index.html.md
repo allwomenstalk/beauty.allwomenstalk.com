@@ -56,15 +56,15 @@ It isn’t called a beauty sleep for no reason! Using beauty products before goi
 
 ## Related Posts
 
-- [best drugstore eyeliner](https://makeup.allwomenstalk.com/best-drugstore-eyeliners-to-try-out-soon/)
 - [7 Cruelty-Free Makeup Lines to Try ...](https://makeup.allwomenstalk.com/cruelty-free-makeup-lines-to-try/)
 - [7 Cheap Yet Useful Beauty Products to Try ...](https://beauty.allwomenstalk.com/cheap-yet-useful-beauty-products-to-try/)
-- [loreal paris color stylo eye pearl](https://beauty.allwomenstalk.com/awesome-beauty-kits-you-need-to-try/)
 - [7 Game-changing Awesome Concealers for You to Try ...](https://makeup.allwomenstalk.com/game-changing-awesome-concealers-for-you-to-try/)
 - [9 of the Best Drug Store Products That You Must Tr...](https://beauty.allwomenstalk.com/of-the-best-drug-store-products-that-you-must-try/)
-- [hourglass veil mineral primer vs airbrush primer](https://makeup.allwomenstalk.com/prime-products-that-help-your-makeup-last-longer/)
 - [7 Awesome Gurus of Green Beauty ...](https://beauty.allwomenstalk.com/awesome-gurus-of-green-beauty/)
 - [7 Make-up Tools You Simply Cant do without ...](https://makeup.allwomenstalk.com/make-up-tools-you-simply-cant-do-without/)
+- [loreal paris color stylo eye pearl](https://beauty.allwomenstalk.com/awesome-beauty-kits-you-need-to-try/)
+- [best drugstore eyeliner](https://makeup.allwomenstalk.com/best-drugstore-eyeliners-to-try-out-soon/)
+- [hourglass veil mineral primer vs airbrush primer](https://makeup.allwomenstalk.com/prime-products-that-help-your-makeup-last-longer/)
 - [7 Beauty Products with a Cause ...](https://beauty.allwomenstalk.com/beauty-products-with-a-cause/)
 - [7 Best Beauty Buys ...](https://allwomenstalk.com/7-best-beauty-buys/)
 - [8 Beauty Essentials Youve Got to Have ...](https://allwomenstalk.com/beauty-essentials-youve-got-to-have/)

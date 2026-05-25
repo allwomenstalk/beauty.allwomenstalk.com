@@ -42,16 +42,16 @@ The way that your eyebrows look can make your face appear entirely different. Th
 
 ## Related Posts
 
-- [70s gogo dancer makeup](https://makeup.allwomenstalk.com/eyeliner-shape-alternates-to-the-cat-eye/)
-- [baddieonlytv](https://makeup.allwomenstalk.com/how-to-humidity-proof-your-make-up/)
 - [order of face makeup](https://makeup.allwomenstalk.com/make-sure-to-put-your-makeup-on-in-this-order/)
-- [paris riche le stylo always pearly](https://makeup.allwomenstalk.com/reasons-to-mix-up-your-makeup/)
-- [eye makeup for school](https://makeup.allwomenstalk.com/wow-your-classmates-with-these-back-to-school-makeup-tutorials/)
-- [how to keep eye makeup from running](https://makeup.allwomenstalk.com/this-is-how-to-keep-your-eyeliner-from-running/)
-- [make up for acne prone skin](https://makeup.allwomenstalk.com/makeup-secrets-for-acne-prone-skin/)
+- [celebrity with cat eyes](https://makeup.allwomenstalk.com/check-out-how-your-favorite-celebrity-wears-the-cat-eye-look/)
 - [how to apply waterline eyeliner](https://makeup.allwomenstalk.com/tips-for-tightlining-your-eyes-when-applying-liner/)
 - [5th grade makeup](https://makeup.allwomenstalk.com/five-minute-makeup-routines-every-busy-girl-will-love/)
-- [celebrity with cat eyes](https://makeup.allwomenstalk.com/check-out-how-your-favorite-celebrity-wears-the-cat-eye-look/)
+- [paris riche le stylo always pearly](https://makeup.allwomenstalk.com/reasons-to-mix-up-your-makeup/)
+- [how to keep eye makeup from running](https://makeup.allwomenstalk.com/this-is-how-to-keep-your-eyeliner-from-running/)
+- [baddieonlytv](https://makeup.allwomenstalk.com/how-to-humidity-proof-your-make-up/)
+- [make up for acne prone skin](https://makeup.allwomenstalk.com/makeup-secrets-for-acne-prone-skin/)
+- [70s gogo dancer makeup](https://makeup.allwomenstalk.com/eyeliner-shape-alternates-to-the-cat-eye/)
+- [eye makeup for school](https://makeup.allwomenstalk.com/wow-your-classmates-with-these-back-to-school-makeup-tutorials/)
 - [8 Simple Steps to Regrow over-plucked Eyebrows ...](https://beauty.allwomenstalk.com/simple-steps-to-regrow-over-plucked-eyebrows/)
 - [Really Useful Infographics : How to Get the Perfec...](https://beauty.allwomenstalk.com/really-useful-infographics-how-to-get-the-perfect-eyebrows/)
 
