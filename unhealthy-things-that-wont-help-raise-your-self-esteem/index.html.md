@@ -3,7 +3,7 @@ title: "17 Unhealthy Things That Wont Help Raise Your Self Esteem ..."
 description: "Saying Mean Things about Others; Wearing Revealing Clothes; Comparing Yourself to Others; Getting Plastic Surgery; Putting Filters on Your Selfies; More ..."
 url: "https://beauty.allwomenstalk.com/unhealthy-things-that-wont-help-raise-your-self-esteem/"
 category: "beauty"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 17 Unhealthy Things That Wont Help Raise Your Self Esteem ...
@@ -86,7 +86,7 @@ Don't let yourself become a hermit. If you never leave your house, you're preven
 
 ![Spending Too Much Time on Social Media](https://img.allw.mn/content/ln/bm/rj8j904n5630cfc135ea5924483795_500x236.gif)
 
-It's unhealthy to Facebook stalk all of the [pretty girls](https://beauty.allwomenstalk.com/secrets-that-pretty-girls-wont-tell-you/) from your class. If they aren't your friends, then don't pay any attention to them and their "perfect" lives.
+It's unhealthy to Facebook stalk all of the pretty girls from your class. If they aren't your friends, then don't pay any attention to them and their "perfect" lives.
 
 ## 14. Listening to Sad Music
 
@@ -116,16 +116,16 @@ It's time to destroy your low self-esteem! What's the most beautiful thing about
 
 ## Related Posts
 
-- [loreal paris riche eye shadow garnet](https://lifestyle.allwomenstalk.com/never-store-these-products-in-your-pocketbook/)
-- [7 Things to Keep Far Away from Your Lady Parts ...](https://health.allwomenstalk.com/things-to-keep-far-away-from-your-lady-parts/)
-- [7 Things That Seem Positive but Are Actually Red F...](https://love.allwomenstalk.com/things-that-seem-positive-but-are-actually-red-flags/)
-- [bad boyfriend qualities](https://love.allwomenstalk.com/you-dont-want-these-qualities-in-a-crush/)
 - [7 Things You Shouldnt Be Jealous of Your Man Doing...](https://love.allwomenstalk.com/things-you-shouldnt-be-jealous-of-your-man-doing/)
-- [Never Put These 7 Ingredients into Your Salad ...](https://food.allwomenstalk.com/never-put-these-ingredients-into-your-salad/)
+- [bad boyfriend qualities](https://love.allwomenstalk.com/you-dont-want-these-qualities-in-a-crush/)
 - [dealbreakers in a relationship](https://love.allwomenstalk.com/things-that-should-automatically-be-deal-breakers/)
-- [Comfortable Couples Should Avoid Doing These 7 Thi...](https://love.allwomenstalk.com/comfortable-couples-should-avoid-doing-these-things/)
-- [Never Use These 17 Words during a Fight with Your ...](https://love.allwomenstalk.com/never-use-these-words-during-a-fight-with-your-man/)
 - [Never Order These Items from a Fast Food Place ...](https://food.allwomenstalk.com/never-order-these-items-from-a-fast-food-place/)
+- [Comfortable Couples Should Avoid Doing These 7 Thi...](https://love.allwomenstalk.com/comfortable-couples-should-avoid-doing-these-things/)
+- [loreal paris riche eye shadow garnet](https://lifestyle.allwomenstalk.com/never-store-these-products-in-your-pocketbook/)
+- [7 Things That Seem Positive but Are Actually Red F...](https://love.allwomenstalk.com/things-that-seem-positive-but-are-actually-red-flags/)
+- [Never Use These 17 Words during a Fight with Your ...](https://love.allwomenstalk.com/never-use-these-words-during-a-fight-with-your-man/)
+- [Never Put These 7 Ingredients into Your Salad ...](https://food.allwomenstalk.com/never-put-these-ingredients-into-your-salad/)
+- [7 Things to Keep Far Away from Your Lady Parts ...](https://health.allwomenstalk.com/things-to-keep-far-away-from-your-lady-parts/)
 - [7 Celebrity Self-Help Books You Probably Shouldnt ...](https://allwomenstalk.com/7-celebrity-self-help-books-you-probably-shouldnt-take-seriously/)
 - [7 Ways to Deal with Insecurity ...](https://allwomenstalk.com/7-ways-to-deal-with-insecurity/)
 

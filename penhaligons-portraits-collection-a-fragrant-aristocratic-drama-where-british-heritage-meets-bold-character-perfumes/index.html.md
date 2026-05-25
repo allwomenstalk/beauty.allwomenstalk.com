@@ -3,7 +3,7 @@ title: "Penhaligon’s Portraits Collection - A Fragrant Aristocratic Drama Wher
 description: "The Tragedy of Lord George - The Gentleman with a Past; Changing Constance - The Woman Who Refuses Convention; Fortuitous Finley - The Charming Disruptor; The Coveted Duchess Rose - Elegance with an Edge; The Blazing Mister Sam - The Maverick; More ..."
 url: "https://beauty.allwomenstalk.com/penhaligons-portraits-collection-a-fragrant-aristocratic-drama-where-british-heritage-meets-bold-character-perfumes/"
 category: "beauty"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Penhaligon’s Portraits Collection \- A Fragrant Aristocratic Drama Where British Heritage Meets Bold Character Perfumes
