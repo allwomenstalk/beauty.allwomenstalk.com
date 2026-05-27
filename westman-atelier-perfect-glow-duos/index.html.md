@@ -3,7 +3,7 @@ title: "Curious About the Perfect Glow? Westman Atelier Might Have the Answer...
 description: "A Symphony of Color: Baby Cheeks + Face Trace Sculpting Powder Duos; The Bold and the Beautiful with Poppet/Ganache; Charming Blush Duos: Coquette/Mimi and More; Beyond Beauty: A Natural Touch to Every Shade; Join the Conversation; More ..."
 url: "https://beauty.allwomenstalk.com/westman-atelier-perfect-glow-duos/"
 category: "beauty"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Curious About the Perfect Glow? Westman Atelier Might Have the Answer...
