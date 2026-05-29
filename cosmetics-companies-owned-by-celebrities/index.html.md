@@ -3,7 +3,7 @@ title: "7 Cosmetics Companies Owned by Celebrities ..."
 description: "Iman; Drew Barrymore; Salma Hayek; Mary-kate and Ashley; Cindy Crawford; More ..."
 url: "https://beauty.allwomenstalk.com/cosmetics-companies-owned-by-celebrities/"
 category: "beauty"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Cosmetics Companies Owned by Celebrities ...
@@ -56,16 +56,16 @@ So there you have it, a list to make many beauty junkies jealous (come on I canâ
 
 ## Related Posts
 
+- [7 Purple Beauty Products You Must Try ...](https://beauty.allwomenstalk.com/purple-beauty-products-you-must-try/)
+- [7 Trial Sized Beauty Products to Always Have aroun...](https://beauty.allwomenstalk.com/trial-sized-beauty-products-to-always-have-around/)
+- [loreal le stylo shadow emerald](https://makeup.allwomenstalk.com/green-beauty-products-that-will-totally-make-you-smile/)
 - [7 Best Products for Your Eyebrows ...](https://makeup.allwomenstalk.com/best-products-for-your-eyebrows/)
 - [this cool guy my gardener met yesterday configures...](https://makeup.allwomenstalk.com/prime-products-for-your-lashes/)
-- [beauty in the pot hacks](https://makeup.allwomenstalk.com/clever-beauty-product-container-hacks-you-must-try/)
-- [color riche stylo shadow hollywood](https://makeup.allwomenstalk.com/incredible-makeup-items-you-will-fall-in-love-with/)
-- [loreal le stylo shadow emerald](https://makeup.allwomenstalk.com/green-beauty-products-that-will-totally-make-you-smile/)
-- [7 Purple Beauty Products You Must Try ...](https://beauty.allwomenstalk.com/purple-beauty-products-you-must-try/)
+- [mangapanda-blog.com highlighting your beauty](https://makeup.allwomenstalk.com/new-drugstore-beauty-buys-to-pick-up-for-the-summer/)
 - [7 Stunning Eyeliners for Summer That You Need Now](https://makeup.allwomenstalk.com/stunning-eyeliners-for-summer-that-you-need-now/)
 - [7 Minty Beauty Products That Are Awesome ...](https://beauty.allwomenstalk.com/minty-beauty-products-that-are-awesome/)
-- [7 Trial Sized Beauty Products to Always Have aroun...](https://beauty.allwomenstalk.com/trial-sized-beauty-products-to-always-have-around/)
-- [mangapanda-blog.com highlighting your beauty](https://makeup.allwomenstalk.com/new-drugstore-beauty-buys-to-pick-up-for-the-summer/)
+- [color riche stylo shadow hollywood](https://makeup.allwomenstalk.com/incredible-makeup-items-you-will-fall-in-love-with/)
+- [beauty in the pot hacks](https://makeup.allwomenstalk.com/clever-beauty-product-container-hacks-you-must-try/)
 - [7 Hot New Makeup Products to Try ...](https://makeup.allwomenstalk.com/hot-new-makeup-products-to-try/)
 - [7 New Makeup Products of This Season ...](https://makeup.allwomenstalk.com/new-makeup-products-of-this-season/)
 
