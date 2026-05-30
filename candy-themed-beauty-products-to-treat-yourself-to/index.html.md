@@ -3,7 +3,7 @@ title: "9 Candy Themed Beauty Products to Treat Yourself to ..."
 description: "Philosophy I Love Candy Corn Shampoo, Shower Gel & Bubble Bath; Cotton Candy Body Spray by Body Fantasies; Victoria's Secret Beauty Rush Gloss in Taffy Go Lucky; Too Faced Chocolate Soleil Matte Bronzing Powder; Sally Hansen Bubble Gum Pink Nail Polish; More ..."
 url: "https://beauty.allwomenstalk.com/candy-themed-beauty-products-to-treat-yourself-to/"
 category: "beauty"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 9 Candy Themed Beauty Products to Treat Yourself to ...
@@ -70,16 +70,16 @@ Top Image Source: [tumblr.com](https://martas-wonderland.tumblr.com/)
 
 ## Related Posts
 
-- [eyebrow guide tool](https://beauty.allwomenstalk.com/best-eyebrow-grooming-tools/)
+- [best drugstore brand eyeliner](https://makeup.allwomenstalk.com/cheaper-drugstore-makeup-alternatives/)
 - [paris stylo eye shadow bottomless](https://makeup.allwomenstalk.com/colored-eyeliners-to-wear-this-fall/)
 - [tarina tarantino sparklicity shimmer dust](https://makeup.allwomenstalk.com/glittery-makeup-products/)
-- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
-- [affordable eyeshadow](https://makeup.allwomenstalk.com/affordable-eyeshadow-palettes-youve-got-to-have/)
-- [best drugstore brand eyeliner](https://makeup.allwomenstalk.com/cheaper-drugstore-makeup-alternatives/)
 - [loreal paris eyeshadow mega palette neon skirt](https://makeup.allwomenstalk.com/best-gifts-for-makeup-lover/)
-- [beauty books](https://beauty.allwomenstalk.com/best-beauty-books-to-buy-right-now/)
-- [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
 - [celebrities makeup looks](https://makeup.allwomenstalk.com/new-celebrity-makeup-looks-to-steal-this-season/)
+- [affordable eyeshadow](https://makeup.allwomenstalk.com/affordable-eyeshadow-palettes-youve-got-to-have/)
+- [chanel makeup review](https://makeup.allwomenstalk.com/top-chanel-makeup-products-i-love/)
+- [luxury eyeshadow](https://makeup.allwomenstalk.com/best-luxury-eye-shadows/)
+- [eyebrow guide tool](https://beauty.allwomenstalk.com/best-eyebrow-grooming-tools/)
+- [beauty books](https://beauty.allwomenstalk.com/best-beauty-books-to-buy-right-now/)
 - [7 New Beauty Products to Treat Yourself to ...](https://allwomenstalk.com/7-new-beauty-products-to-treat-yourself-to/)
 - [9 High-end Beauty Products That Are Actually Worth...](https://beauty.allwomenstalk.com/high-end-beauty-products-that-are-actually-worth-the-price/)
 

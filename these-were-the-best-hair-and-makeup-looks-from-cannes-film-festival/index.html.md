@@ -3,7 +3,7 @@ title: "These Were the Best Hair and Makeup Looks from Cannes Film Festival 2015
 description: "Kendall Jenner's Messy Bun and Beautiful Red Lips; Georgina Chapman's Smokey Eye; Karlie Kloss' Perfectly Contoured Cheeks; Aishwarya Rai's Green Eye Makeup and Glossy Hair; Joan Smalls' Bronze Smokey Eye; More ..."
 url: "https://beauty.allwomenstalk.com/these-were-the-best-hair-and-makeup-looks-from-cannes-film-festival/"
 category: "beauty"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # These Were the Best Hair and Makeup Looks from Cannes Film Festival 2015 ...
@@ -134,16 +134,16 @@ Which of these looks would you love to try?
 
 ## Related Posts
 
-- [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
-- [jimmy fallon ellen lip sync](https://celebs.allwomenstalk.com/ellen-degeneres-vs-jimmy-fallon-who-won-their-lip-sync-battle/)
-- [drinking game with boyfriend](https://lifestyle.allwomenstalk.com/play-this-drinking-game-during-the-oscars/)
-- [teen choice 2015](https://celebs.allwomenstalk.com/the-red-carpet-at-the-teen-choice-awards/)
-- [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
 - [pulitzer prize winners 2017](https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/)
-- [pulitzer prize 2016](https://books.allwomenstalk.com/who-won-pulitzer-prizes-in/)
-- [Oscars - Jennifer and Leo](https://allwomenstalk.com/oscars-jennifer-and-leo/)
 - [best couples of hollywood](https://celebs.allwomenstalk.com/the-best-dressed-hollywood-couples/)
+- [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
+- [Oscars - Jennifer and Leo](https://allwomenstalk.com/oscars-jennifer-and-leo/)
+- [jimmy fallon ellen lip sync](https://celebs.allwomenstalk.com/ellen-degeneres-vs-jimmy-fallon-who-won-their-lip-sync-battle/)
+- [pulitzer prize 2016](https://books.allwomenstalk.com/who-won-pulitzer-prizes-in/)
+- [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
 - [couple fashion editorial](https://celebs.allwomenstalk.com/are-these-the-most-stylish-couples-of-all-time/)
+- [teen choice 2015](https://celebs.allwomenstalk.com/the-red-carpet-at-the-teen-choice-awards/)
+- [drinking game with boyfriend](https://lifestyle.allwomenstalk.com/play-this-drinking-game-during-the-oscars/)
 - [Beauty News ...](https://allwomenstalk.com/beauty-news/)
 - [5 Fabulous Makeup Trends for Spring-Summer ...](https://allwomenstalk.com/fabulous-makeup-trends-for-spring-summer/)
 

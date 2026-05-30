@@ -3,7 +3,7 @@ title: "DECORTE’s Five Must-Have Beauty Essentials for Radiant Skin and Eyes"
 description: "Liposome Advanced Repair Serum - $75; Liposome Advanced Repair Cream - $95; Liposome Advanced Repair Eye Serum - $70; Eye Glow Gem Skin Shadow - Dewy Glow - $27; Eye Glow Gem Skin Shadow - Silky Matte - $27; More ..."
 url: "https://beauty.allwomenstalk.com/decortes-five-must-have-beauty-essentials-radiant-skin-eyes/"
 category: "beauty"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # DECORTE’s Five Must\-Have Beauty Essentials for Radiant Skin and Eyes
