@@ -3,7 +3,7 @@ title: "8 Beauty Tips from New York Fashion Week ..."
 description: "Bronzed Eyes; Strong Brows; Electric Eyes; Neutral Nails; Textured Tresses; More ..."
 url: "https://beauty.allwomenstalk.com/beauty-tips-from-new-york-fashion-week/"
 category: "beauty"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Beauty Tips from New York Fashion Week ...
@@ -46,16 +46,16 @@ I love how we can get so much beauty inspiration from fashion week. Designers go
 
 ## Related Posts
 
-- [designer collaboration](https://fashion.allwomenstalk.com/current-designer-collaborations-worth-checking-out/)
-- [fashion insiders](https://fashion.allwomenstalk.com/interesting-fashion-books-from-fashion-insiders/)
-- [sf street style](https://streetstyle.allwomenstalk.com/most-fabulous-street-style-icons/)
 - [kids fashion designers](https://fashion.allwomenstalk.com/designer-collaborations-for-kids/)
-- [documentary fashion](https://movies.allwomenstalk.com/great-fashion-documentaries-to-watch/)
-- [this sporty](https://streetstyle.allwomenstalk.com/great-sporty-street-style-looks/)
-- [spring street style risk taking over](https://streetstyle.allwomenstalk.com/gorgeous-spring-street-style-looks/)
-- [stockholm fashion week](https://inspiration.allwomenstalk.com/fashion-weeks-around-the-world-and-what-to-expect/)
-- [best fashion and beauty websites](https://fashion.allwomenstalk.com/amazing-fashion-and-beauty-websites-you-have-to-check-out/)
 - [trendy fashion house](https://fashion.allwomenstalk.com/top-fashion-houses-and-how-to-tell-them-apart/)
+- [fashion insiders](https://fashion.allwomenstalk.com/interesting-fashion-books-from-fashion-insiders/)
+- [stockholm fashion week](https://inspiration.allwomenstalk.com/fashion-weeks-around-the-world-and-what-to-expect/)
+- [documentary fashion](https://movies.allwomenstalk.com/great-fashion-documentaries-to-watch/)
+- [sf street style](https://streetstyle.allwomenstalk.com/most-fabulous-street-style-icons/)
+- [best fashion and beauty websites](https://fashion.allwomenstalk.com/amazing-fashion-and-beauty-websites-you-have-to-check-out/)
+- [designer collaboration](https://fashion.allwomenstalk.com/current-designer-collaborations-worth-checking-out/)
+- [spring street style risk taking over](https://streetstyle.allwomenstalk.com/gorgeous-spring-street-style-looks/)
+- [this sporty](https://streetstyle.allwomenstalk.com/great-sporty-street-style-looks/)
 - [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
 - [9 New Fashion Trends to Try ...](https://fashion.allwomenstalk.com/new-fashion-trends-to-try/)
 

@@ -3,7 +3,7 @@ title: "25 Curvy Models We Want to See on the Victorias Secret Catwalks ..."
 description: "Georgia Pratt; Tess Holliday; Olivia Langdon; Sophie Sheppard; Denise Bidot; More ..."
 url: "https://beauty.allwomenstalk.com/curvy-models-we-want-to-see-on-the-victorias-secret-catwalks/"
 category: "beauty"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 25 Curvy Models We Want to See on the Victorias Secret Catwalks ...
@@ -174,16 +174,16 @@ I'd like to throw a question out there. Why is the world not having the same deb
 
 ## Related Posts
 
-- [karlie kloss outfits](https://fashion.allwomenstalk.com/karlie-klosss-cutest-outfits-so-far-from-her-youtube-channel/)
-- [you not built for these streets](https://travel.allwomenstalk.com/these-streets-put-the-s-in-style/)
-- [famous model sisters](https://fashion.allwomenstalk.com/these-famous-sisters-are-so-stylish-it-hurts/)
 - [female characters that wear trench coats](https://fashion.allwomenstalk.com/these-these-celebs-show-us-how-to-wear-trench-coats/)
-- [dakota johnson outfits](https://celebs.allwomenstalk.com/street-style-outfits-to-steal-from-dakota-johnson/)
-- [most fashionable celebrities](https://fashion.allwomenstalk.com/stylish-celebrities-who-put-the-fun-in-fashion/)
+- [famous model sisters](https://fashion.allwomenstalk.com/these-famous-sisters-are-so-stylish-it-hurts/)
 - [famous moms](https://fashion.allwomenstalk.com/famous-moms-who-know-all-about-fashion/)
 - [sassy my style](https://streetstyle.allwomenstalk.com/times-we-loved-cara-delevingnes-sassy-style/)
+- [dakota johnson outfits](https://celebs.allwomenstalk.com/street-style-outfits-to-steal-from-dakota-johnson/)
 - [90s office wear](https://fashion.allwomenstalk.com/these-classic-tv-icons-will-influence-your-holiday-style/)
 - [makeovers with elizabeth taylor](https://celebs.allwomenstalk.com/fashion-formulas-inspired-by-old-hollywood-celebs/)
+- [karlie kloss outfits](https://fashion.allwomenstalk.com/karlie-klosss-cutest-outfits-so-far-from-her-youtube-channel/)
+- [most fashionable celebrities](https://fashion.allwomenstalk.com/stylish-celebrities-who-put-the-fun-in-fashion/)
+- [you not built for these streets](https://travel.allwomenstalk.com/these-streets-put-the-s-in-style/)
 - [29 Photos of Victorias Secret What is Sexy ...](https://celebs.allwomenstalk.com/victorias-secret-what-is-sexy/)
 - [8 Incredibly Gorgeous Top Fashion Models of All Ti...](https://fashion.allwomenstalk.com/incredibly-gorgeous-top-fashion-models-of-all-time/)
 
