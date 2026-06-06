@@ -3,7 +3,7 @@ title: "7 Uniquely American Toiletry Brands ..."
 description: "Philosophy; Margot Elena Companies & Collections; Laura Mercier Cosmetics; Elizabeth Arden, Inc; Estée Lauder; More ..."
 url: "https://beauty.allwomenstalk.com/uniquely-american-toiletry-brands/"
 category: "beauty"
-last_updated: "2026-06-02"
+last_updated: "2026-06-06"
 ---
 
 # 7 Uniquely American Toiletry Brands ...
@@ -20,7 +20,7 @@ One of my favorite American toiletry brands is Philosophy, because of their clev
 
 ![Margot Elena Companies & Collections](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ar/kl/b42tvvzw_600x450.jpg)
 
-If you’ve bought Lollia, TokyoMilk, TokyoMilk Dark, or Love&Toast products before, then you’ve bought from Margot Elena. Margot’s a designer who opened her first boutique gift shop in her twenties, and has subsequently focused on soaps, candles, skincare products, including lotions, bath and shower gels. The products she's created with each of her brands combine unique scents, intriguing packaging designs, and playful twists on what it means to be a modern feminine woman. Margot’s motto is “fight for good design” – something she’s proven is personally possible.
+If you’ve bought Lollia, TokyoMilk, TokyoMilk Dark, or Love&Toast products before, then you’ve bought from Margot Elena. Margot’s a designer who opened her first boutique gift shop in her twenties, and has subsequently focused on soaps, candles, skincare products, including lotions, bath and shower gels. The products she's created with each of her brands combine unique scents, intriguing packaging designs, and playful twists on what it means to be a modern feminine woman. Margot’s motto is “fight for good design” �� something she’s proven is personally possible.
 
 ## 3. Laura Mercier Cosmetics
 
@@ -56,16 +56,16 @@ There you have it, the alchemy of these uniquely American toiletry brands. Do yo
 
 ## Related Posts
 
-- [riche le stylo smoky eye avant garde azure](https://makeup.allwomenstalk.com/makeup-brands-worth-trying-out/)
-- [ewg eyeshadow](https://makeup.allwomenstalk.com/eco-friendly-makeup-products-that-you-should-try/)
-- [riche le stylo smoky shadow with twist](https://makeup.allwomenstalk.com/vintage-makeup-ads-that-will-make-you-smile/)
-- [revlon best sellers](https://makeup.allwomenstalk.com/revlon-makeup-products-that-are-worth-owning/)
-- [best face highlighters](https://makeup.allwomenstalk.com/awesome-face-highlighters-to-help-give-you-a-beautiful-glow/)
-- [iron oxide in mascara](https://makeup.allwomenstalk.com/harmful-ingredients-in-mascara-that-you-should-avoid/)
-- [bombshell beauty nails  lashes photos](https://makeup.allwomenstalk.com/bombshell-beauty-products-that-changes-your-look-in-seconds/)
-- [best beauty products splurge](https://beauty.allwomenstalk.com/beauty-products-to-splurge-and-to-save-on/)
-- [nyc bronzer sunny](https://makeup.allwomenstalk.com/amazing-bronzers-for-people-who-hate-bronzers/)
 - [coral lipstick makeup look](https://makeup.allwomenstalk.com/coral-makeup-products-you-need-this-summer/)
+- [best face highlighters](https://makeup.allwomenstalk.com/awesome-face-highlighters-to-help-give-you-a-beautiful-glow/)
+- [revlon best sellers](https://makeup.allwomenstalk.com/revlon-makeup-products-that-are-worth-owning/)
+- [nyc bronzer sunny](https://makeup.allwomenstalk.com/amazing-bronzers-for-people-who-hate-bronzers/)
+- [iron oxide in mascara](https://makeup.allwomenstalk.com/harmful-ingredients-in-mascara-that-you-should-avoid/)
+- [riche le stylo smoky eye avant garde azure](https://makeup.allwomenstalk.com/makeup-brands-worth-trying-out/)
+- [best beauty products splurge](https://beauty.allwomenstalk.com/beauty-products-to-splurge-and-to-save-on/)
+- [ewg eyeshadow](https://makeup.allwomenstalk.com/eco-friendly-makeup-products-that-you-should-try/)
+- [bombshell beauty nails  lashes photos](https://makeup.allwomenstalk.com/bombshell-beauty-products-that-changes-your-look-in-seconds/)
+- [riche le stylo smoky shadow with twist](https://makeup.allwomenstalk.com/vintage-makeup-ads-that-will-make-you-smile/)
 - [Top 7 Skin Care Brands I Love ...](https://skincare.allwomenstalk.com/top-skin-care-brands-i-love/)
 - [7 Fabulous Make-up Bags ...](https://bags.allwomenstalk.com/7-fabulous-make-up-bags/)
 
