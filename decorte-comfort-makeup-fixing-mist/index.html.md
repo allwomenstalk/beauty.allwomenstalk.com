@@ -1,12 +1,12 @@
 ---
-title: "DECORT’s New Comfort Makeup Fixing Mist Might Be the Smartest Beauty Launch of the Year"
+title: "DECORTÉ’s New Comfort Makeup Fixing Mist Might Be the Smartest Beauty Launch of the Year"
 description: "Why Setting Sprays Have Become Beauty Essentials; A Setting Spray Inspired by Skincare; The Science Behind Crystal Veil Fix Technology; The Power of a Bi-Phase Formula; Botanical Ingredients That Elevate the Formula; More ..."
 url: "https://beauty.allwomenstalk.com/decorte-comfort-makeup-fixing-mist/"
 category: "beauty"
 last_updated: "2026-06-07"
 ---
 
-# DECORT’s New Comfort Makeup Fixing Mist Might Be the Smartest Beauty Launch of the Year
+# DECORTÉ’s New Comfort Makeup Fixing Mist Might Be the Smartest Beauty Launch of the Year
 
 There are two kinds of makeup days.
 
