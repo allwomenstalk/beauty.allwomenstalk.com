@@ -1,12 +1,12 @@
 ---
-title: "L’OBJET’s New Sublime Krylos Bath & Body Collection Elevates Daily Ritual into Reverie"
+title: "L’OBJET’s New Sublime Kérylos Bath & Body Collection Elevates Daily Ritual into Reverie …"
 description: "The Poetry of Scent, the Alchemy of Collaboration; A Myth Reimagined: The Spirit of the Kingfisher; Kérylos Hand + Body Lotion: A Whisper of Sunlight; Kérylos Hand + Body Soap: A Gentle Prelude; Kérylos Eau de Parfum: The Origin of Desire; More ..."
 url: "https://beauty.allwomenstalk.com/l-objet-kerylos-bath-body-collection/"
 category: "beauty"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# L’OBJET’s New Sublime Krylos Bath & Body Collection Elevates Daily Ritual into Reverie
+# L’OBJET’s New Sublime Kérylos Bath & Body Collection Elevates Daily Ritual into Reverie …
 
 **There are fragrances that linger like a memory**, imprinting themselves not just on the skin but on the soul. Then there are those **rare creations that do more - they transport**. **L’OBJET’s Kérylos, an olfactive ode to Mediterranean light, wind, and sea**, is one such creation. And now, in a poetic expansion of its fragrance universe, the brand invites us to sink even deeper into the **Kérylos experience** with the unveiling of its **new Bath & Body Collection, that launched July 9, 2025.**
 

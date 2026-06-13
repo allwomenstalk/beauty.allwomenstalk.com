@@ -1,12 +1,12 @@
 ---
-title: "Augustinus Bader’s New Geranium Rose Body Cream and Geranium Rose Body Oil Redefine Luxury Body Care"
+title: "Augustinus Bader’s New Geranium Rose Body Cream and Geranium Rose Body Oil Redefine Luxury Body Care …"
 description: "A New Era of Luxury Body Care - Science Meets Sensory Pleasure; The Ritual - Why Pairing Body Oil and Body Cream Matters; The Geranium Rose Body Cream - A Rich Yet Weightless Skin Savior; The Geranium Rose Body Oil - Radiance, Elasticity, and a Modern Glow; The Perfect Valentine’s Day Gift - For Them or For Yourself; More ..."
 url: "https://beauty.allwomenstalk.com/augustinus-bader-geranium-rose-body-cream-oil-duo-luxury/"
 category: "beauty"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Augustinus Bader’s New Geranium Rose Body Cream and Geranium Rose Body Oil Redefine Luxury Body Care
+# Augustinus Bader’s New Geranium Rose Body Cream and Geranium Rose Body Oil Redefine Luxury Body Care …
 
 **There are beauty launches**, and then there are moments when a brand quietly reminds the entire industry **why it remains a benchmark for innovation, efficacy, and unapologetic luxury**. Just in time for **Valentine’s Day** - when **self-love rituals and thoughtful gifting** become elevated art forms - [Augustinus Bader](https://augustinusbader.com) introduces a duo that **transforms daily body care into something far more meaningful** than a quick post-shower routine. [The Geranium Rose Body Cream](https://augustinusbader.com/us/en/the-geranium-rose-body-cream) and [The Geranium Rose Body Oil](https://augustinusbader.com/us/en/the-geranium-rose-body-oil) are a sensorial pairing that marries **clinical precision with indulgent texture, all powered by the brand’s legendary TFC8® technology.**
 

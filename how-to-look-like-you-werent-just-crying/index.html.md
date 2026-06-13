@@ -1,12 +1,12 @@
 ---
-title: "How to Look like You Werent Just Crying ..."
+title: "How to Look like You Weren't Just Crying ..."
 description: "Wash Your Face with Cold Water to Reduce Redness; Use Eyedrops to Get Rid of Redness; Use an Ice Cube to Get Rid of Puffiness; Reapply Your Makeup to Get Rid of Smudges; Take an Advil to Reduce Swelling; More ..."
 url: "https://beauty.allwomenstalk.com/how-to-look-like-you-werent-just-crying/"
 category: "beauty"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# How to Look like You Werent Just Crying ...
+# How to Look like You Weren't Just Crying ...
 
 If you've been hiding in the bathroom crying over something silly, but you need to leave soon to interact with other people, there are a few things you can do to prevent embarrassment. If you don't want others to know that you were upset, putting on a smile isn't enough. The redness or puffiness of your face might give away what you've been trying to hide. That's why you should follow these tips to hide the fact that you were just crying:
 
@@ -54,18 +54,18 @@ Crying is nothing to be ashamed of, so if someone realizes that you're upset, it
 
 ## Related Posts
 
-- [how to become elegant and graceful](https://beauty.allwomenstalk.com/so-you-want-to-be-elegant-and-graceful-heres-how/)
 - [you look great mirror](https://beauty.allwomenstalk.com/mirror-hacks-thatll-make-you-feel-more-beautiful/)
-- [beauty resolutions](https://beauty.allwomenstalk.com/beauty-resolutions-that-will-make-you-look-better-than-ever/)
-- [you look seductive](https://love.allwomenstalk.com/subtle-ways-to-look-sexy-without-trying-too-hard/)
-- [how to keep eyes looking young](https://beauty.allwomenstalk.com/heres-how-to-keep-your-eyes-looking-young/)
+- [best selfie techniques](https://beauty.allwomenstalk.com/selfie-tips-from-a-professional-model/)
 - [you always look so put together](https://fashion.allwomenstalk.com/ways-to-always-look-perfectly-put-together/)
+- [how to become elegant and graceful](https://beauty.allwomenstalk.com/so-you-want-to-be-elegant-and-graceful-heres-how/)
 - [how to boost confidence quickly](https://inspiration.allwomenstalk.com/boost-your-confidence-with-these-quick-tricks/)
 - [what to do when you hate how you look](https://inspiration.allwomenstalk.com/how-to-get-through-on-a-day-you-hate-your-body/)
-- [best selfie techniques](https://beauty.allwomenstalk.com/selfie-tips-from-a-professional-model/)
-- [how to like the way you look](https://beauty.allwomenstalk.com/learn-to-love-the-way-you-look/)
+- [how to like the way you look?](https://beauty.allwomenstalk.com/learn-to-love-the-way-you-look/)
+- [beauty resolutions](https://beauty.allwomenstalk.com/beauty-resolutions-that-will-make-you-look-better-than-ever/)
+- [how to keep eyes looking young](https://beauty.allwomenstalk.com/heres-how-to-keep-your-eyes-looking-young/)
+- [you look seductive](https://love.allwomenstalk.com/subtle-ways-to-look-sexy-without-trying-too-hard/)
 - [Stress Less to Improve Your Looks ...](https://beauty.allwomenstalk.com/stress-less-to-improve-your-looks/)
-- [What to do when Youre Sad but Dont Know Why ...](https://inspiration.allwomenstalk.com/what-to-do-when-youre-sad-but-dont-know-why/)
+- [What to do when You're Sad, but Don't Know Why ...](https://inspiration.allwomenstalk.com/what-to-do-when-youre-sad-but-dont-know-why/)
 
 ## Site Information
 

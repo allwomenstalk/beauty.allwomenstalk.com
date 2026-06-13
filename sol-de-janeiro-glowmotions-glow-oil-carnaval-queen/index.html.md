@@ -1,12 +1,12 @@
 ---
-title: "Sol de Janeiro’s Limited-Edition Glowmotions Glow Oil in Carnaval Queen Is Everything Your Skin Needs This Summer"
+title: "Sol de Janeiro’s Limited-Edition Glowmotions Glow Oil in Carnaval Queen Is Everything Your Skin Needs This Summer …"
 description: "A Shimmering Tribute to Joy; A Formula Rich with Brazilian Treasures; A Scent as Irresistible as the Glow; Your Summer Glow Essential; A Limited-Edition Gem Not to Be Missed; More ..."
 url: "https://beauty.allwomenstalk.com/sol-de-janeiro-glowmotions-glow-oil-carnaval-queen/"
 category: "beauty"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# Sol de Janeiro’s Limited\-Edition Glowmotions Glow Oil in Carnaval Queen Is Everything Your Skin Needs This Summer
+# Sol de Janeiro’s Limited\-Edition Glowmotions Glow Oil in Carnaval Queen Is Everything Your Skin Needs This Summer …
 
 There are **beauty products**—and then there are **beauty moments**. The kind that awaken your senses, transform the ordinary into the extraordinary, and sweep you into a dream of sunlight, music, and joy. [Sol de Janeiro’s newest jewel, the Glowmotions Glow Body Oil in Carnaval Queen](https://soldejaneiro.com/products/glowmotions-glow-body-oil-carnaval-queen/), is precisely such a moment. This **limited-edition creation** is more than a body oil; it’s an invitation to revel in the **unapologetic energy and shimmer** of Brazil’s most iconic celebration—Carnaval.
 

@@ -1,12 +1,12 @@
 ---
-title: "The AWS Teams Favorite Beauty Products of 2015 ..."
+title: "The AWS Team's Favorite Beauty Products of 2015 ..."
 description: "Becca X Jaclyn Hill Shimmering Skin Perfector® in Champagne Pop; Anastasia Brow Wiz; Urban Decay Naked Basics Palette; Philosophy Iced Mint Lemonade Lip Polishing Sugar Scrub; Benefit Cosmetics They're Real! Mascara; More ..."
 url: "https://beauty.allwomenstalk.com/the-aws-teams-favorite-beauty-products-of/"
 category: "beauty"
-last_updated: "2026-06-02"
+last_updated: "2026-06-13"
 ---
 
-# The AWS Teams Favorite Beauty Products of 2015 ...
+# The AWS Team's Favorite Beauty Products of 2015 ...
 
 The editors here at AWS will all remember 2015 as the year of perfect brows, luminous skin, and graphic liner, attainable with our best beauty buys and favorite products of the year. Which of your faves made the list? Let's find out!
 
@@ -129,16 +129,16 @@ Price: $20.00 at [sephora.com](http://www.sephora.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [You Better Buy These 27 Global Beauty Brands While...](https://beauty.allwomenstalk.com/you-better-buy-these-global-beauty-brands-while-you-can/)
-- [paris color le stylo eye blinged and brilliant](https://makeup.allwomenstalk.com/the-new-product-that-will-give-you-perfect-cat-eyes/)
-- [Put These 21 Makeup Items under Your Tree This Sea...](https://makeup.allwomenstalk.com/put-these-makeup-items-under-your-tree-this-season/)
-- [Celeb Beauty Lines You Should Be Buying Your Produ...](https://skincare.allwomenstalk.com/celeb-beauty-lines-you-should-be-buying-your-products-from/)
 - [it cosmetics airbrush illuminizer](https://makeup.allwomenstalk.com/you-cant-live-without-these-hot-makeup-products/)
-- [Celebrate Chinese New Year with These Ravishing Re...](https://beauty.allwomenstalk.com/celebrate-chinese-new-year-with-these-ravishing-red-and-gold-beauty-products/)
-- [riche stylo smoky emerald conquest](https://makeup.allwomenstalk.com/rarely-used-makeup-tools-that-totally-work/)
-- [Minty Products to Pep up Your Beauty Routine ...](https://beauty.allwomenstalk.com/minty-products-to-pep-up-your-beauty-routine/)
-- [loreal paris riche le stylo timeless blue](https://beauty.allwomenstalk.com/the-cheap-new-product-that-beats-the-beauty-blender/)
+- [Put These 21 Makeup Items under Your Tree This Sea...](https://makeup.allwomenstalk.com/put-these-makeup-items-under-your-tree-this-season/)
+- [You Better Buy These 27 Global Beauty Brands While...](https://beauty.allwomenstalk.com/you-better-buy-these-global-beauty-brands-while-you-can/)
 - [23 Beauty Sets That You Should Put on Your Holiday...](https://beauty.allwomenstalk.com/beauty-sets-that-you-should-put-on-your-holiday-gift-list/)
+- [loreal paris riche le stylo timeless blue](https://beauty.allwomenstalk.com/the-cheap-new-product-that-beats-the-beauty-blender/)
+- [Celebrate Chinese New Year with These Ravishing Re...](https://beauty.allwomenstalk.com/celebrate-chinese-new-year-with-these-ravishing-red-and-gold-beauty-products/)
+- [Celeb Beauty Lines You Should Be Buying Your Produ...](https://skincare.allwomenstalk.com/celeb-beauty-lines-you-should-be-buying-your-products-from/)
+- [paris color le stylo eye blinged and brilliant](https://makeup.allwomenstalk.com/the-new-product-that-will-give-you-perfect-cat-eyes/)
+- [Minty Products to Pep up Your Beauty Routine ...](https://beauty.allwomenstalk.com/minty-products-to-pep-up-your-beauty-routine/)
+- [riche stylo smoky emerald conquest](https://makeup.allwomenstalk.com/rarely-used-makeup-tools-that-totally-work/)
 - [Beauty News ...](https://allwomenstalk.com/beauty-news/)
 - [The Makeup Show: Product Finds ...](https://allwomenstalk.com/the-makeup-show-product-finds/)
 
