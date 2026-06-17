@@ -3,7 +3,7 @@ title: "9 Tips to Look Pretty and Perky when You're Sick ..."
 description: "Moisturize; Hydrate; Blush; Get the Red out; Eyes; More ..."
 url: "https://beauty.allwomenstalk.com/tips-to-look-pretty-and-perky-when-youre-sick/"
 category: "beauty"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 9 Tips to Look Pretty and Perky when You're Sick ...
@@ -52,16 +52,16 @@ Top Image Source: [tumblr.com](https://www.tumblr.com/tagged/saskia-wilson)
 
 ## Related Posts
 
-- [how to look great in photos](https://lifestyle.allwomenstalk.com/super-suggestions-for-how-to-look-good-in-every-photo/)
-- [facial balancing filler](https://beauty.allwomenstalk.com/easy-ways-to-enhance-cheekbones/)
-- [cute spectacles for girl](https://beauty.allwomenstalk.com/tips-on-how-to-look-pretty-in-glasses/)
-- [pink and lime green outfit](https://fashion.allwomenstalk.com/ways-to-brighten-up-your-look-for-spring/)
-- [how to look more confident](https://lifestyle.allwomenstalk.com/winning-ways-to-look-more-confident/)
-- [around the waist](https://fashion.allwomenstalk.com/easy-ways-to-define-your-waist/)
-- [always wear your confidence](https://lifestyle.allwomenstalk.com/ways-to-wear-your-confidence/)
 - [things to change in the new year](https://fashion.allwomenstalk.com/simple-ways-to-change-your-look-in-the-new-year/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/ways-to-be-lovely/)
+- [always wear your confidence](https://lifestyle.allwomenstalk.com/ways-to-wear-your-confidence/)
+- [around the waist](https://fashion.allwomenstalk.com/easy-ways-to-define-your-waist/)
+- [pink and lime green outfit](https://fashion.allwomenstalk.com/ways-to-brighten-up-your-look-for-spring/)
+- [how to look great in photos](https://lifestyle.allwomenstalk.com/super-suggestions-for-how-to-look-good-in-every-photo/)
+- [cute spectacles for girl](https://beauty.allwomenstalk.com/tips-on-how-to-look-pretty-in-glasses/)
 - [pin up outfit](https://fashion.allwomenstalk.com/ways-to-get-pin-up-look-without-getting-costumey/)
+- [how to look more confident](https://lifestyle.allwomenstalk.com/winning-ways-to-look-more-confident/)
+- [facial balancing filler](https://beauty.allwomenstalk.com/easy-ways-to-enhance-cheekbones/)
 - [9 Natural Beauty Tips for Prettier You ...](https://beauty.allwomenstalk.com/natural-beauty-tips-for-prettier-you/)
 - [Beauty Tips: 9 Sure-Fire Ways to Wake up Ravishing...](https://beauty.allwomenstalk.com/beauty-tips-sure-fire-ways-to-wake-up-ravishingly-gorgeous/)
 

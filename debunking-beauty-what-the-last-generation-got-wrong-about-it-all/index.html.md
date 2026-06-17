@@ -3,7 +3,7 @@ title: "Debunking Beauty: What the Last Generation Got Wrong about It All ..."
 description: "You Should Be Eating Lots of Cream; Redheads Can’t Wear Red Lipstick; Use Egg Whites to Hide Dark Circles; Mature Women Can’t Wear Shimmer; Only Hippies Wear Scarves; More ..."
 url: "https://beauty.allwomenstalk.com/debunking-beauty-what-the-last-generation-got-wrong-about-it-all/"
 category: "beauty"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # Debunking Beauty: What the Last Generation Got Wrong about It All ...
@@ -56,16 +56,16 @@ What past beauty advice have you gotten that you think is silly today?
 
 ## Related Posts
 
-- [college beauty essentials](https://beauty.allwomenstalk.com/brilliant-beauty-tips-for-college-students-everywhere/)
-- [what beauty treatments should i get regularly](https://beauty.allwomenstalk.com/how-often-should-you-do-home-beauty-treatments/)
-- [morning pampering](https://beauty.allwomenstalk.com/morning-beauty-habits-that-will-make-you-more-beautiful/)
-- [paris riche le stylo smoky eye spark](https://beauty.allwomenstalk.com/heres-how-you-can-get-longer-lashes-using-only-natural-remedies/)
 - [weird skin care](https://skincare.allwomenstalk.com/weird-skincare-tips-that-actually-work/)
-- [how to be more noticeable](https://beauty.allwomenstalk.com/beauty-tips-to-become-more-noticeable-by-boys/)
-- [turn shower into spa](https://beauty.allwomenstalk.com/how-to-turn-your-shower-into-a-diy-spa/)
-- [makeup secrets](https://makeup.allwomenstalk.com/how-to-look-pretty-without-wearing-makeup/)
-- [masking liner](https://skincare.allwomenstalk.com/why-multi-masking-is-the-new-beauty-buzz/)
+- [what beauty treatments should i get regularly](https://beauty.allwomenstalk.com/how-often-should-you-do-home-beauty-treatments/)
+- [paris riche le stylo smoky eye spark](https://beauty.allwomenstalk.com/heres-how-you-can-get-longer-lashes-using-only-natural-remedies/)
 - [prettygirls](https://beauty.allwomenstalk.com/household-items-you-should-include-in-your-beauty-routine/)
+- [how to be more noticeable](https://beauty.allwomenstalk.com/beauty-tips-to-become-more-noticeable-by-boys/)
+- [makeup secrets](https://makeup.allwomenstalk.com/how-to-look-pretty-without-wearing-makeup/)
+- [turn shower into spa](https://beauty.allwomenstalk.com/how-to-turn-your-shower-into-a-diy-spa/)
+- [college beauty essentials](https://beauty.allwomenstalk.com/brilliant-beauty-tips-for-college-students-everywhere/)
+- [morning pampering](https://beauty.allwomenstalk.com/morning-beauty-habits-that-will-make-you-more-beautiful/)
+- [masking liner](https://skincare.allwomenstalk.com/why-multi-masking-is-the-new-beauty-buzz/)
 - [The Science of Beauty: What Influences Your Look ....](https://beauty.allwomenstalk.com/the-science-of-beauty-what-influences-your-look/)
 - [Don't Sabotage Your Own Skin: Little Known Beauty ...](https://skincare.allwomenstalk.com/dont-sabotage-your-own-skin-little-known-beauty-facts-you-must-read-now/)
 

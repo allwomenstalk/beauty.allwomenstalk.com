@@ -3,7 +3,7 @@ title: "15 Best Afropunk Makeup and Hair Looks from the NY Festival"
 description: "Glowing Skin and a Dark Lip; Lush Hair and Violet Lips; Bantu Knots; Lavender Braids and Specs; Curls Galore; More ..."
 url: "https://beauty.allwomenstalk.com/the-best-in-hair-and-beauty-at-afropunk-fest-ny/"
 category: "beauty"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 15 Best Afropunk Makeup and Hair Looks from the NY Festival
@@ -135,15 +135,15 @@ I loved the range of looks at Afropunk this year. I can't wait to see what next 
 
 ## Related Posts
 
-- [chicheres](https://celebs.allwomenstalk.com/shes-so-chic-heres-rita-oras-lookbook/)
-- [gigi fab](https://fashion.allwomenstalk.com/fabulous-looks-from-gigi-hadid/)
+- [quotes about fashion models](https://fashion.allwomenstalk.com/inspiring-quotes-from-fashion-models/)
+- [kendall and kourtney height meme](https://fashion.allwomenstalk.com/the-kardashian-kids-cutest-outfits-yet/)
 - [most fashionable celebrities](https://fashion.allwomenstalk.com/stylish-celebrities-who-put-the-fun-in-fashion/)
 - [female characters that wear trench coats](https://fashion.allwomenstalk.com/these-these-celebs-show-us-how-to-wear-trench-coats/)
-- [nyfw models](https://fashion.allwomenstalk.com/the-most-breathtaking-nyfw-models/)
-- [quotes about fashion models](https://fashion.allwomenstalk.com/inspiring-quotes-from-fashion-models/)
-- [taylor swift fall wallpaper](https://celebs.allwomenstalk.com/use-taylor-swift-as-your-fashion-inspiration-this-fall/)
-- [kendall and kourtney height meme](https://fashion.allwomenstalk.com/the-kardashian-kids-cutest-outfits-yet/)
 - [calvin harris body](https://fashion.allwomenstalk.com/calvin-harris-and-taylor-swifts-most-stylish-moments/)
+- [taylor swift fall wallpaper](https://celebs.allwomenstalk.com/use-taylor-swift-as-your-fashion-inspiration-this-fall/)
+- [nyfw models](https://fashion.allwomenstalk.com/the-most-breathtaking-nyfw-models/)
+- [gigi fab](https://fashion.allwomenstalk.com/fabulous-looks-from-gigi-hadid/)
+- [chicheres](https://celebs.allwomenstalk.com/shes-so-chic-heres-rita-oras-lookbook/)
 - [victoria secret anorexia](https://beauty.allwomenstalk.com/curvy-models-we-want-to-see-on-the-victorias-secret-catwalks/)
 - [Beauty News ...](https://allwomenstalk.com/beauty-news/)
 - [The Makeup Show ...](https://allwomenstalk.com/the-makeup-show/)

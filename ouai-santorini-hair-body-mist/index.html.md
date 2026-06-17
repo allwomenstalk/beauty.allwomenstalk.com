@@ -3,7 +3,7 @@ title: "OUAI Santorini Hair & Body Mist Is the Peach Fragrance of Summer"
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://beauty.allwomenstalk.com/ouai-santorini-hair-body-mist/"
 category: "beauty"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # OUAI Santorini Hair & Body Mist Is the Peach Fragrance of Summer
