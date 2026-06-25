@@ -3,7 +3,7 @@ title: "DECORTÉ’s New Comfort Makeup Fixing Mist Might Be the Smartest Beauty
 description: "Why Setting Sprays Have Become Beauty Essentials; A Setting Spray Inspired by Skincare; The Science Behind Crystal Veil Fix Technology; The Power of a Bi-Phase Formula; Botanical Ingredients That Elevate the Formula; More ..."
 url: "https://beauty.allwomenstalk.com/decorte-comfort-makeup-fixing-mist/"
 category: "beauty"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # DECORTÉ’s New Comfort Makeup Fixing Mist Might Be the Smartest Beauty Launch of the Year

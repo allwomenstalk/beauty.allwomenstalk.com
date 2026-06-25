@@ -3,7 +3,7 @@ title: "Sol de Janeiro’s Limited-Edition Glowmotions Glow Oil in Carnaval Quee
 description: "A Shimmering Tribute to Joy; A Formula Rich with Brazilian Treasures; A Scent as Irresistible as the Glow; Your Summer Glow Essential; A Limited-Edition Gem Not to Be Missed; More ..."
 url: "https://beauty.allwomenstalk.com/sol-de-janeiro-glowmotions-glow-oil-carnaval-queen/"
 category: "beauty"
-last_updated: "2026-06-17"
+last_updated: "2026-06-25"
 ---
 
 # Sol de Janeiro’s Limited\-Edition Glowmotions Glow Oil in Carnaval Queen Is Everything Your Skin Needs This Summer …
