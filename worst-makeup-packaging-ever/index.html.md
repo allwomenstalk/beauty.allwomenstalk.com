@@ -3,7 +3,7 @@ title: "7 Worst Makeup Packaging Ever ..."
 description: "Urban Decay Book of Shadows; The Balm Hot Mama Shadow/Blush; Dr. Jart+ Premium Beauty Balm SPF 45 PA+++; Stila Lip Glaze; Urban Decay Primer Potion; More ..."
 url: "https://beauty.allwomenstalk.com/worst-makeup-packaging-ever/"
 category: "beauty"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 7 Worst Makeup Packaging Ever ...
@@ -58,15 +58,15 @@ Top Image Source: [nataliavodianovafan.wordpress.com](https://nataliavodianovafa
 
 ## Related Posts
 
-- [color le shadow avant azure](https://beauty.allwomenstalk.com/chic-cobalt-blue-beauty-buys/)
 - [independent makeup](https://makeup.allwomenstalk.com/independent-makeup-brands-you-must-try/)
-- [paris riche smoky eye shadow twist](https://makeup.allwomenstalk.com/incredible-eyeshadow-must-haves-for-fall/)
-- [pink eyeshadow on brown eyes](https://makeup.allwomenstalk.com/beautiful-eyeshadows-for-dark-brown-eyes/)
 - [functioning beauty](https://beauty.allwomenstalk.com/incredibly-multi-functioning-beauty-products/)
 - [best all in one makeup palettes](https://makeup.allwomenstalk.com/pretty-multipurpose-makeup-palettes-to-try/)
 - [best mascara for short lashes sephora](https://makeup.allwomenstalk.com/amazing-mascaras-for-short-eyelashes/)
+- [paris riche smoky eye shadow twist](https://makeup.allwomenstalk.com/incredible-eyeshadow-must-haves-for-fall/)
 - [is silicone primer good for oily skin](https://makeup.allwomenstalk.com/makeup-primers-without-silicone/)
+- [pink eyeshadow on brown eyes](https://makeup.allwomenstalk.com/beautiful-eyeshadows-for-dark-brown-eyes/)
 - [le smoky endless](https://makeup.allwomenstalk.com/great-eyeshadow-palettes/)
+- [color le shadow avant azure](https://beauty.allwomenstalk.com/chic-cobalt-blue-beauty-buys/)
 - [cosmetixclub](https://makeup.allwomenstalk.com/worst-makeup-brands-out-there/)
 - [8 Quirky Cosmetics Cases ...](https://makeup.allwomenstalk.com/quirky-cosmetics-cases/)
 - [8 Essential Makeup Accessories ...](https://makeup.allwomenstalk.com/essential-makeup-accessories/)

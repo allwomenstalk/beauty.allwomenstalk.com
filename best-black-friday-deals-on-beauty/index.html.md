@@ -3,7 +3,7 @@ title: "Top 35 Black Friday Deals on Beauty Every Girl Must See ..."
 description: "Anastasia Beverly Hills Aurora Glow Kit, $24.00; Smashbox Studio to Go Eyes Duo , $10.00; MAC Snow Ball Prep + Prime Fix+ Kit , $20.00; MAC Snow Ball Rose Gold Eye & Lip Bag (Nordstrom Exclusive) , $39.50; Charlotte Tilbury Eye Essentials Duo (Nordstrom Exclusive) , $27.00; More ..."
 url: "https://beauty.allwomenstalk.com/best-black-friday-deals-on-beauty/"
 category: "beauty"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # Top 35 Black Friday Deals on Beauty Every Girl Must See ...
@@ -241,16 +241,16 @@ Find at [shop.nordstrom.com](https://www.nordstrom.com/s/pop-dental-rechargeable
 
 ## Related Posts
 
-- [date makeup looks](https://makeup.allwomenstalk.com/products-for-perfect-date-makeup/)
-- [how much do you spend on makeup](https://makeup.allwomenstalk.com/how-much-is-your-makeup-collection-worth/)
-- [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
-- [makeup samples free](https://makeup.allwomenstalk.com/how-to-get-free-makeup-samples/)
-- [are fish scales used in cosmetics](https://makeup.allwomenstalk.com/ingredients-you-wont-believe-are-in-your-makeup/)
-- [cheap highlighters](https://makeup.allwomenstalk.com/best-drugstore-highlighters-according-to-makeupalley-com/)
-- [good drugstore makeup](https://makeup.allwomenstalk.com/drugstore-makeup-products-under-10-that-are-worth-your-money/)
-- [getlemonhead](https://beauty.allwomenstalk.com/beauty-products-for-st-patricks-day/)
-- [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
 - [top full coverage foundation](https://makeup.allwomenstalk.com/best-full-coverage-foundations/)
+- [are fish scales used in cosmetics](https://makeup.allwomenstalk.com/ingredients-you-wont-believe-are-in-your-makeup/)
+- [getlemonhead](https://beauty.allwomenstalk.com/beauty-products-for-st-patricks-day/)
+- [is nars cruelty free](https://beauty.allwomenstalk.com/cruelty-free-beauty-brands-to-shop/)
+- [good drugstore makeup](https://makeup.allwomenstalk.com/drugstore-makeup-products-under-10-that-are-worth-your-money/)
+- [date makeup looks](https://makeup.allwomenstalk.com/products-for-perfect-date-makeup/)
+- [makeup samples free](https://makeup.allwomenstalk.com/how-to-get-free-makeup-samples/)
+- [6 Feng Shui Beauty Essentials to Keep in Your Desk...](https://beauty.allwomenstalk.com/feng-shui-beauty-essentials-to-keep-in-your-desk/)
+- [how much do you spend on makeup](https://makeup.allwomenstalk.com/how-much-is-your-makeup-collection-worth/)
+- [cheap highlighters](https://makeup.allwomenstalk.com/best-drugstore-highlighters-according-to-makeupalley-com/)
 - [7 Best Beauty Buys ...](https://allwomenstalk.com/7-best-beauty-buys/)
 - [8 Essential Beauty Products All Girls Should Own ....](https://allwomenstalk.com/8-essential-beauty-products-all-girls-should-own/)
 

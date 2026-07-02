@@ -3,7 +3,7 @@ title: "5 Trending REFY Holiday Bundles Your Girlfriends Will Love💄 …"
 description: "REFY Hero Collection - $36.00; REFY Lip Taster Collection - $36.00; REFY Lip Buff and Gloss Collection - $36.00; REFY Brow Collection - $55.00; REFY Sculpt Duo Collection - $42.00; More ..."
 url: "https://beauty.allwomenstalk.com/refy-holiday-bundles-2024/"
 category: "beauty"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # 5 Trending REFY Holiday Bundles Your Girlfriends Will Love💄 …

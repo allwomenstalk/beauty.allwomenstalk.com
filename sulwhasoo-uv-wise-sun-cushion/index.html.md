@@ -3,7 +3,7 @@ title: "Sulwhasoo UV Wise On-the-Go Sun Cushion Is Set to Redefine Summer Skinca
 description: "A New Era of Sun Protection; Where Skincare Meets Sun Care; The Power of Hybrid Protection; Designed for Life on the Move; A Refreshing Sensory Experience; More ..."
 url: "https://beauty.allwomenstalk.com/sulwhasoo-uv-wise-sun-cushion/"
 category: "beauty"
-last_updated: "2026-06-25"
+last_updated: "2026-07-02"
 ---
 
 # Sulwhasoo UV Wise On\-the\-Go Sun Cushion Is Set to Redefine Summer Skincare
