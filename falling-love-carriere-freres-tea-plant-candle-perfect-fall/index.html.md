@@ -3,7 +3,7 @@ title: "Falling in Love with Carrière Frères’ Tea Plant Candle - The Perfect
 description: "The Autumnal Mood, Bottled (or Rather, Poured); The Artisans of Atmosphere; A Fragrance with Purpose; Why This Candle Feels Like a Seasonal Ritual; A Perfect Companion for the Season (and Beyond); More ..."
 url: "https://beauty.allwomenstalk.com/falling-love-carriere-freres-tea-plant-candle-perfect-fall/"
 category: "perfumes"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # Falling in Love with Carrière Frères’ Tea Plant Candle \- The Perfect  Fall Candle of 2025 …

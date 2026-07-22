@@ -3,7 +3,7 @@ title: "15 Interesting Things about Eyebrows through the Ages ..."
 description: "Ancient Egypt; Sumer; Ancient Greece; Ancient Rome; The Middle Ages; More ..."
 url: "https://beauty.allwomenstalk.com/interesting-things-about-eyebrows-through-the-ages/"
 category: "beauty"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # 15 Interesting Things about Eyebrows through the Ages ...
@@ -75,14 +75,14 @@ How have you worn your eyebrows through the years? Do you ever look at style ico
 ## Related Posts
 
 - [peter capaldi wedding ring](https://movies.allwomenstalk.com/facts-and-things-to-know-about-the-new-doctor-who/)
-- [nerdy fun facts](https://movies.allwomenstalk.com/nerdy-facts-about-star-wars/)
-- [about scandal](https://movies.allwomenstalk.com/surprising-fun-facts-about-scandal/)
-- [google when is the first day of fall](https://lifestyle.allwomenstalk.com/facts-about-the-first-day-of-fall/)
-- [facts on vegetarianism](https://food.allwomenstalk.com/interesting-facts-about-vegetarianism/)
-- [chinese moon festival facts](https://travel.allwomenstalk.com/interesting-facts-about-the-chinese-mid-autumn-festival/)
 - [chocolate myth](https://food.allwomenstalk.com/myths-about-chocolate-exposed/)
+- [chinese moon festival facts](https://travel.allwomenstalk.com/interesting-facts-about-the-chinese-mid-autumn-festival/)
+- [about scandal](https://movies.allwomenstalk.com/surprising-fun-facts-about-scandal/)
 - [5 facts about penguin](https://lifestyle.allwomenstalk.com/fun-facts-about-penguins/)
+- [facts on vegetarianism](https://food.allwomenstalk.com/interesting-facts-about-vegetarianism/)
+- [nerdy fun facts](https://movies.allwomenstalk.com/nerdy-facts-about-star-wars/)
 - [10 surprising health facts](https://health.allwomenstalk.com/surprising-health-facts-you-wont-believe/)
+- [google when is the first day of fall](https://lifestyle.allwomenstalk.com/facts-about-the-first-day-of-fall/)
 - [facts on wildlife](https://lifestyle.allwomenstalk.com/startling-and-mind-blowing-new-facts-about-wildlife-extinction/)
 - [12 Tips on How to Pluck Your Eyebrows ...](https://allwomenstalk.com/12-tips-on-how-to-pluck-your-eyebrows/)
 - [10 Beautiful Eyebrows Tips ...](https://allwomenstalk.com/beautiful-eyebrows-tips/)

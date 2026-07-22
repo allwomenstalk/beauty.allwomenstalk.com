@@ -3,7 +3,7 @@ title: "8 Craziest Celebrity Makeup Looks ..."
 description: "Nicki Minaj; Ke$ha; Lady Gaga; Christina Aguilera; Marilyn Manson; More ..."
 url: "https://beauty.allwomenstalk.com/craziest-celebrity-makeup-looks/"
 category: "beauty"
-last_updated: "2026-07-02"
+last_updated: "2026-07-22"
 ---
 
 # 8 Craziest Celebrity Makeup Looks ...
@@ -62,16 +62,16 @@ What do you think of these crazy celebrity makeup looks? Do you like it when cel
 
 ## Related Posts
 
-- [tips for applying blush](https://makeup.allwomenstalk.com/blush-application-tips-for-your-face-shape/)
-- [eye makeup for eye shape](https://makeup.allwomenstalk.com/eye-shadow-tips-for-your-eye-shape/)
-- [diamond shape face celebrities](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-a-diamond-shaped-face/)
-- [color riche le smoky blue spark](https://makeup.allwomenstalk.com/cool-makeup-colors-for-autumn/)
-- [riche smoky eye shadow blinged brilliant](https://makeup.allwomenstalk.com/splendid-makeup-tips-to-enhance-the-gold-in-your-eyes/)
 - [good makeup tricks](https://makeup.allwomenstalk.com/marvelous-makeup-tricks-for-deep-set-eyes/)
-- [seven makeup foundation](https://makeup.allwomenstalk.com/practical-makeup-techniques-for-rainy-days/)
+- [tips for applying blush](https://makeup.allwomenstalk.com/blush-application-tips-for-your-face-shape/)
+- [color riche le smoky blue spark](https://makeup.allwomenstalk.com/cool-makeup-colors-for-autumn/)
+- [eye makeup for eye shape](https://makeup.allwomenstalk.com/eye-shadow-tips-for-your-eye-shape/)
 - [makeup types with pictures](https://makeup.allwomenstalk.com/makeup-tips-for-small-eyes/)
-- [what is the best way to apply liquid foundation](https://makeup.allwomenstalk.com/foolproof-tips-for-applying-liquid-foundation/)
+- [seven makeup foundation](https://makeup.allwomenstalk.com/practical-makeup-techniques-for-rainy-days/)
+- [riche smoky eye shadow blinged brilliant](https://makeup.allwomenstalk.com/splendid-makeup-tips-to-enhance-the-gold-in-your-eyes/)
 - [old fashioned makeup](https://makeup.allwomenstalk.com/awesome-vintage-makeup-tutorials/)
+- [diamond shape face celebrities](https://makeup.allwomenstalk.com/clever-makeup-tricks-for-a-diamond-shaped-face/)
+- [what is the best way to apply liquid foundation](https://makeup.allwomenstalk.com/foolproof-tips-for-applying-liquid-foundation/)
 - [7 Summer Makeup Looks ...](https://makeup.allwomenstalk.com/summer-makeup-looks/)
 - [10 Make-up Tips from Celebrities ...](https://fashion.allwomenstalk.com/10-make-up-tips-from-celebrities/)
 
