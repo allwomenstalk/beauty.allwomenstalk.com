@@ -3,7 +3,7 @@ title: "\"in Memory\" Tattoos for when You've Lost a Loved One ..."
 description: "Their Signature; Coordinates; Their Birth and Death Date; Their Favorite Song; Music Notes; More ..."
 url: "https://beauty.allwomenstalk.com/tattoo-ideas-to-honor-the-deceased/"
 category: "beauty"
-last_updated: "2026-07-25"
+last_updated: "2026-08-01"
 ---
 
 # "in Memory" Tattoos for when You've Lost a Loved One ...
@@ -58,14 +58,14 @@ Even though your loved ones may be gone, they'll always be with you in your hear
 
 - [roman numerals shoulder tattoo](https://beauty.allwomenstalk.com/inks-going-classic-with-these-roman-numeral-tattoos/)
 - [roman latin tattoo](https://beauty.allwomenstalk.com/latin-tattoos-you-are-not-going-to-resist-getting/)
-- [fergie engagement ring](https://jewelry.allwomenstalk.com/unique-celeb-engagement-rings-you-should-be-jealous-of/)
-- [statement necklace meaning](https://jewelry.allwomenstalk.com/statement-necklaces-to-add-umph-to-any-outfit/)
-- [the struggle is real tattoo](https://beauty.allwomenstalk.com/these-one-line-tattoos-to-give-you-ink-inspiration/)
-- [statement necklaces for black dress](https://jewelry.allwomenstalk.com/statement-necklaces-thatll-add-sparkle-to-your-wardrobe/)
-- [little prince jewelry](https://jewelry.allwomenstalk.com/pieces-of-jewelry-inspired-by-books/)
-- [pirate tattoos](https://beauty.allwomenstalk.com/majestic-mermaid-tattoos-meant-to-make-you-smile/)
-- [irish memorial tattoos](https://beauty.allwomenstalk.com/memorial-tattoos-for-anyone-youve-loved-and-lost/)
 - [cutest tree](https://jewelry.allwomenstalk.com/heres-the-cutest-holiday-tree-themed-jewelry-out-there/)
+- [pirate tattoos](https://beauty.allwomenstalk.com/majestic-mermaid-tattoos-meant-to-make-you-smile/)
+- [fergie engagement ring](https://jewelry.allwomenstalk.com/unique-celeb-engagement-rings-you-should-be-jealous-of/)
+- [irish memorial tattoos](https://beauty.allwomenstalk.com/memorial-tattoos-for-anyone-youve-loved-and-lost/)
+- [the struggle is real tattoo](https://beauty.allwomenstalk.com/these-one-line-tattoos-to-give-you-ink-inspiration/)
+- [little prince jewelry](https://jewelry.allwomenstalk.com/pieces-of-jewelry-inspired-by-books/)
+- [statement necklace meaning](https://jewelry.allwomenstalk.com/statement-necklaces-to-add-umph-to-any-outfit/)
+- [statement necklaces for black dress](https://jewelry.allwomenstalk.com/statement-necklaces-thatll-add-sparkle-to-your-wardrobe/)
 - [A Pisces Tattoo and Other Meaningful Ink ...](https://lifestyle.allwomenstalk.com/cool-tattoos-and-their-meanings/)
 - [The Scent of Love ...](https://allwomenstalk.com/the-scent-of-love/)
 
