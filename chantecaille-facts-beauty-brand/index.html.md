@@ -3,7 +3,7 @@ title: "7 Surprising Facts About CHANTECAILLE Beauty Brand Every Makeup Enthusia
 description: "A Family Company; Pure Botanical Ingredients; Beauty With Impact; Results Through Scientific Innovation; Wild About Nature; More ..."
 url: "https://beauty.allwomenstalk.com/chantecaille-facts-beauty-brand/"
 category: "beauty"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 7 Surprising Facts About CHANTECAILLE Beauty Brand Every Makeup Enthusiast Must Know …

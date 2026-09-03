@@ -3,7 +3,7 @@ title: "10 Hero Products from OURSELF to Give You Great Skin without Needles, Dr
 description: "Complexion Brightening Serum — $189 (30ml); THE CLEANSER THAT DOESN’T BELIEVE IN OVER-CLEANING; Daily Purifying Cleanser — $45 (150ml); WAKE UP YOUR EYES WITHOUT WAKING UP A NEEDLE; HA+ Replenishing Eye Serum — $130 (16.5ml); More ..."
 url: "https://beauty.allwomenstalk.com/hero-products-ourselves-great-skin-without-needles/"
 category: "skincare"
-last_updated: "2026-08-01"
+last_updated: "2026-09-03"
 ---
 
 # 10 Hero Products from OURSELF to Give You Great Skin without Needles, Drama, or a Single Appointment …
