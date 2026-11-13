@@ -1,9 +1,9 @@
 ---
 title: "AGENT NATEUR’s Holi (Stick): More Than Just a Scent, It’s..."
-description: "The Scent of Strolling Through Paris; The Holistic Approach to Beauty; What Makes It Stand Out?; More ..."
+description: "The Scent of Strolling Through Paris; The Holistic Approach to Beauty; What Makes It Stand Out?"
 url: "https://beauty.allwomenstalk.com/agent-nateur-holi-stick/"
 category: "beauty"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # AGENT NATEUR’s Holi \(Stick\): More Than Just a Scent, It’s...

@@ -1,9 +1,9 @@
 ---
 title: "5 Trending REFY Gift Sets Every Woman in Your Life Will Love"
-description: "REFY Hero Collection; REFY Lip Taster Collection; REFY Lip Buff and Gloss Collection; REFY Brow Collection; REFY Sculpt Duo Collection; More ..."
+description: "REFY Hero Collection; REFY Lip Taster Collection; REFY Lip Buff and Gloss Collection; REFY Brow Collection; REFY Sculpt Duo Collection"
 url: "https://beauty.allwomenstalk.com/trending-refy-gift-sets/"
 category: "beauty"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 5 Trending REFY Gift Sets Every Woman in Your Life Will Love

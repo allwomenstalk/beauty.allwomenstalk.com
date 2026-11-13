@@ -1,9 +1,9 @@
 ---
 title: "SOL DE JANEIRO CHEIROSA 71 BODY CREAM Is This Fall’s Ultimate Beauty Must-Have"
-description: "About Sol de Janeiro; Product Launch Details; Key Ingredients and Benefits; The Sensory Experience; Product Performance; More ..."
+description: "About Sol de Janeiro; Product Launch Details; Key Ingredients and Benefits; The Sensory Experience; Product Performance"
 url: "https://beauty.allwomenstalk.com/sol-de-janeiro-cheirosa-71-body-cream-review/"
 category: "beauty"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # SOL DE JANEIRO CHEIROSA 71 BODY CREAM Is This Fall’s Ultimate Beauty Must\-Have

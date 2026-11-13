@@ -1,9 +1,9 @@
 ---
 title: "7 Winter Beauty Treats to Indulge in Now ..."
-description: "Too Faced-the Chocolate Bar Eye Palette; Foreo Luna Facial Cleansing Brush; GLAMGLOW THIRSTYMUD Hydrating Treatment; St. Ives Exfoliating Pads; Neutrogena Triple Moisture Deep Recovery Hair Mask; More ..."
+description: "Too Faced-the Chocolate Bar Eye Palette; Foreo Luna Facial Cleansing Brush; GLAMGLOW THIRSTYMUD Hydrating Treatment; St. Ives Exfoliating Pads"
 url: "https://beauty.allwomenstalk.com/winter-beauty-treats-to-indulge-in-now/"
 category: "beauty"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Winter Beauty Treats to Indulge in Now ...

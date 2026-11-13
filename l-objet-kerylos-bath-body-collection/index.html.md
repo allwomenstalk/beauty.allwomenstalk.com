@@ -1,9 +1,9 @@
 ---
 title: "L’OBJET’s New Sublime Kérylos Bath & Body Collection Elevates Daily Ritual into Reverie …"
-description: "The Poetry of Scent, the Alchemy of Collaboration; A Myth Reimagined: The Spirit of the Kingfisher; Kérylos Hand + Body Lotion: A Whisper of Sunlight; Kérylos Hand + Body Soap: A Gentle Prelude; Kérylos Eau de Parfum: The Origin of Desire; More ..."
+description: "The Poetry of Scent, the Alchemy of Collaboration; A Myth Reimagined: The Spirit of the Kingfisher; Kérylos Hand + Body Lotion: A Whisper of Sunlight"
 url: "https://beauty.allwomenstalk.com/l-objet-kerylos-bath-body-collection/"
 category: "beauty"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # L’OBJET’s New Sublime Kérylos Bath & Body Collection Elevates Daily Ritual into Reverie …

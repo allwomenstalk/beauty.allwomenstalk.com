@@ -1,9 +1,9 @@
 ---
 title: "4 VIOLETTE_FR Holiday 2025 Gift Sets You’ll Actually Want to Keep"
-description: "Here's a closer look at each of the four irresistible offerings:; Why VIOLETTE_FR Holiday Sets Are the Gift Everyone Will Pretend They Didn't Want but Secretly Will; The Perfect Pairings: Who Gets What; Where to Get Them; More ..."
+description: "Here's a closer look at each of the four irresistible offerings:"
 url: "https://beauty.allwomenstalk.com/violette-fr-holiday-gift-sets-youll-want-to-keep/"
 category: "beauty"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 4 VIOLETTE\_FR Holiday 2025 Gift Sets You’ll Actually Want to Keep

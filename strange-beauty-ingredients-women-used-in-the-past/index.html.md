@@ -1,9 +1,9 @@
 ---
 title: "7 Seriously Weird Beauty Ingredients Women Used in the past ..."
-description: "Lead; Arsenic; Animal Fat; False Teeth; Blood; More ..."
+description: "Lead; Arsenic; Animal Fat; False Teeth; Blood"
 url: "https://beauty.allwomenstalk.com/strange-beauty-ingredients-women-used-in-the-past/"
 category: "beauty"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # 7 Seriously Weird Beauty Ingredients Women Used in the past ...
@@ -42,16 +42,16 @@ During the war years, cosmetics were scarce, so women had to be resourceful. Our
 
 ## Related Posts
 
-- [model with thick eyebrows cara](https://beauty.allwomenstalk.com/timeless-beauty-looks-thatll-always-be-in-style/)
-- [skincare infographics](https://beauty.allwomenstalk.com/helpful-beauty-infographics-to-pore-over/)
-- [women with beautiful hair](https://beauty.allwomenstalk.com/beauty-tips-for-women-with-dark-hair/)
-- [marilyn monroe makeup quotes](https://beauty.allwomenstalk.com/inspiring-bits-of-beauty-advice-from-marilyn-monroe/)
-- [melissa mccarthy ginger](https://beauty.allwomenstalk.com/beauty-lessons-we-can-learn-from-melissa-mccarthy/)
-- [uses of wax](https://beauty.allwomenstalk.com/uses-for-wax-in-the-beauty-industry/)
-- [aerosmith fashion](https://beauty.allwomenstalk.com/beauty-secrets-from-aerosmiths-steven-tyler/)
 - [superstar make up](https://beauty.allwomenstalk.com/top-beauty-tips-to-make-you-look-like-a-superstar/)
+- [marilyn monroe makeup quotes](https://beauty.allwomenstalk.com/inspiring-bits-of-beauty-advice-from-marilyn-monroe/)
+- [model with thick eyebrows cara](https://beauty.allwomenstalk.com/timeless-beauty-looks-thatll-always-be-in-style/)
 - [eco friendly beauty tips](https://beauty.allwomenstalk.com/amazing-eco-friendly-beauty-tips/)
 - [splendid beauty salon](https://beauty.allwomenstalk.com/splendid-beauty-tips-for-redheads/)
+- [skincare infographics](https://beauty.allwomenstalk.com/helpful-beauty-infographics-to-pore-over/)
+- [uses of wax](https://beauty.allwomenstalk.com/uses-for-wax-in-the-beauty-industry/)
+- [women with beautiful hair](https://beauty.allwomenstalk.com/beauty-tips-for-women-with-dark-hair/)
+- [aerosmith fashion](https://beauty.allwomenstalk.com/beauty-secrets-from-aerosmiths-steven-tyler/)
+- [melissa mccarthy ginger](https://beauty.allwomenstalk.com/beauty-lessons-we-can-learn-from-melissa-mccarthy/)
 - [7 Cult-Classic Beauty Products ...](https://allwomenstalk.com/7-cult-classic-beauty-products/)
 - [7 Weird and Wonderful Beauty Treatments ...](https://allwomenstalk.com/7-weird-and-wonderful-beauty-treatments/)
 

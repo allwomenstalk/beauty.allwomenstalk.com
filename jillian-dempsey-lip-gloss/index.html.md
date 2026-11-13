@@ -1,9 +1,9 @@
 ---
 title: "Unlock the Secret to Luscious Lips with Jillian Dempsey's New Gloss..."
-description: "Enchanting Shades: The Colors of Transition; The Transformative Power of Elegance; A Personal Touch of Artistry; Shedding Light: Your Turn to Shine; More ..."
+description: "Enchanting Shades: The Colors of Transition; The Transformative Power of Elegance; A Personal Touch of Artistry; Shedding Light: Your Turn to Shine"
 url: "https://beauty.allwomenstalk.com/jillian-dempsey-lip-gloss/"
 category: "beauty"
-last_updated: "2026-09-03"
+last_updated: "2026-11-13"
 ---
 
 # Unlock the Secret to Luscious Lips with Jillian Dempsey's New Gloss...
