@@ -1,71 +1,105 @@
 ---
-title: "7 Dos and Don'ts of Wearing Red Lipstick That Any Makeup Lover Should Know ..."
-description: "Know What Shade is Right for You; Bring Back the Lip Liner; Choose Your Outfit Accordingly; Don’t Let It Migrate to Your Teeth"
+title: "How to Wear Red Lipstick for the Holidays (Try It With Dark Nails)"
+description: "Skip matching red nails. Celebrities are pairing red lipstick with black, oxblood, and espresso manicures. How to pick the red, the finish, and the nail."
 url: "https://beauty.allwomenstalk.com/dos-and-donts-of-wearing-red-lipstick-that-any-makeup-lover-should-know/"
 category: "beauty"
-last_updated: "2026-11-13"
+last_updated: "2026-11-23"
 ---
 
-# 7 Dos and Don'ts of Wearing Red Lipstick That Any Makeup Lover Should Know ...
+# How to Wear Red Lipstick for the Holidays \(Try It With Dark Nails\)
 
-When I was a little girl, one of my favorite aunts always wore red lipstick and had her nails and toenails painted red. I thought this was just the most beautiful thing in the world, and for years, I couldn’t wait to wear red lipstick myself. I always think of her when I see a tube in the store, yet I don’t buy it for myself because my skin tones are very different than hers. I don’t look good in red lipstick, despite the many attempts I’ve made to try it. In fact, once I walked home with it on and my family begged me not to wear it again. Being a makeup perfectionist for years, I couldn’t believe I’d make such a huge cosmetic faux pas! Don’t wear red lipstick the wrong way by following my simple rules. Red is classy, bold and so sophisticated, but it must be worn right to pull it off. Follow these steps so your family doesn’t have to be the ones to tell you it isn’t your best color like mine did!
+Red lipstick and a dark manicure do most of the work of a holiday beauty look. Start with a red you enjoy wearing and paint your nails black, espresso or deep burgundy. A crisp red with glossy black gives you a sharper effect. Tomato red with espresso looks warmer, especially beside gold jewelry or velvet.
 
-## 1. Know What Shade is Right for You
+The easiest way to make the pairing your own is to choose the [lip finish](#finish) and [nail shade](#nails) independently. Try both with the clothes you plan to wear. A lip and manicure can look very different against a soft pink blouse than they do against a black jacket.
 
-![Know What Shade is Right for You](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/09/01201845_2433_450x563.jpg)
+## Why the pairing works
 
-Here’s the thing about choosing a good red lipstick: there are many color shades suited for various skin types. You’ll need to try on many before you find one that works for you. They come in a variety of shades, such as orange shades of red, pink shades of red, and even cool bluish-reds. A safe and general rule is that women with fair skin should lean toward true reds with no orangey tones, while medium-skinned women look best in pinkish or orangey reds. Dark-skinned women should go for darker shades and even sport purple and wine-colored hues of red. This may take some trial and error to find what works for you, so be patient! Finding a good lipstick shade can take years, but don’t just go for the infamous red light red and expect to pull it off the first time. With all the many shades out there, it might not hurt to go to a makeup counter and have a specialist make recommendations.
+[Allure’s Marci Robin](https://www.allure.com/story/holiday-beauty-trend-red-lips-dark-nails) noticed a return to dark nails alongside red lipstick on the red carpet. Charlize Theron paired a red lip with glossy black nails at the Governors Awards, while Gwendoline Christie wore burgundy polish at the British Museum Ball. Rose Byrne used pale pink as the backdrop for her red lip. Between them, those examples offer three starting points for an ordinary party wardrobe: echo the clothing, coordinate one detail or let the makeup stand out against a softer color.
 
-## 2. Bring Back the Lip Liner
+## Do choose the red for the effect you want
 
-![Bring Back the Lip Liner](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/09/01201854_5287_480x720.jpg)
+Hold a blue-based red and a warmer tomato red against your face in the light where you usually get ready. The cooler option can read crisp and a little retro, while a warmer red gives the look a softer, more relaxed feel. True red sits somewhere between the two when neither direction appeals to you. If the color you like in the tube feels strong on your lips, try tapping on a little color first before building another layer.
 
-Many people think lip liner is outdated, but when it comes to red lipstick, it is your best friend! The great thing about using lip liner with red lipstick is that you won’t see it like you will when wearing other shades, if you make sure to match up the lip liner to your lipstick correctly. The point of using lip liner with red lipstick is so it locks the lipstick on your lips. There’s nothing worse than finding you had smudged red lipstick on the outside of your mouth after a date! Or, worse, finding it above or below your lips. We don’t want you looking like Bozo the Clown, sweetie!
+Use the color of the outfit for a second test. A warm red gives a cream knit and dark nails a different look than the same pairing against fuchsia. And if red still feels brighter than you want, a [raspberry or cranberry lip](https://makeup.allwomenstalk.com/berry-lips/) keeps the color family and changes the mood.
 
-## 3. Choose Your Outfit Accordingly
+## Do pick a finish that suits the evening
 
-![Choose Your Outfit Accordingly](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/09/01201909_5780_500x750.jpg)
+A matte finish gives a red lip an even, defined look. Choose it if you want the lip to feel like the focal point of a blazer or simple dress. Satin has more movement in the light and is easy to pair with a softer outline. Glossy red works especially well when the clothes are quiet enough to give it room. See our guide to [wearing matte lipstick](https://makeup.allwomenstalk.com/the-right-way-to-wear-sexy-matte-lips/) for ways to apply a more opaque red.
 
-When choosing to wear red lipstick, you’ll have to base the entire rest of your outfit around it. Red is bold, striking, and can be brilliant if worn the right way. Yet, when it isn’t, it can be tacky, trashy and tragic! We want you to look your best, so wear red lipstick with a complementary outfit. Red looks great with solid black, such as little black dresses or a suit, and it also looks great with most evening gowns, and jeans with a leather bomber jacket for a more fashionable twist. It also pairs well with simple ballet flats, a brown or black outfit, and with a leopard accent such as a scarf. Just don’t overdo animal print with red lipstick; that’s a big no-no! Also, if you’re wearing sweats, leave the red lipstick at home and put on a gloss to keep things simple.
+Try the finish before you leave. If you will be eating and talking all evening, check what it looks like after a drink. Carry the lipstick or the liner you used so you can refresh the part that fades first.
 
-## 4. Don’t Let It Migrate to Your Teeth
+## Do line the areas you want to define
 
-![Don’t Let It Migrate to Your Teeth](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/09/01201953_1843_500x750.jpg)
+Use a pencil close to your lipstick if you want a consistent edge. Start at the Cupid’s bow, then sketch toward the corners in short strokes. You can trace the whole shape or use the pencil only where the edge tends to disappear. Apply lipstick, look at both sides in a mirror and make small adjustments with the corner of a tissue.
 
-Here’s another reason I don’t wear red lipstick besides the fact I look ridiculous in it: I’m paranoid of it getting on my teeth all day! Red lipstick is so bright and noticeable, that you can bet if it gets on your teeth, people will notice you, though not in the way you were hoping. To prevent this, be sure to blot your lips, and try an old trick well known to women everywhere. Insert a clean finger into your mouth, close your lips around it, then pull the finger out. You’ll get rid of the excess lipstick found on the inside of your lips this way. Just be sure to wash your hands after, hun!
+For a less defined finish, pat color inward from the line with a fingertip or brush. The [soft-focus lip liner guide](https://allwomenstalk.com/soft-focus-lip-liner/) has more ideas for a gently blurred edge.
 
-## 5. Make Sure Your Teeth Are Pretty and White
+## Do try a dark nail that suits your outfit
 
-![Make Sure Your Teeth Are Pretty and White](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/09/01202021_9057_553x831.jpg)
+Nail shade
+Try it with
 
-It can’t hurt to whiten your teeth regularly if you’re wearing red lipstick. Red lipstick does not look good on yellow-stained teeth from coffee, tea, or other dark beverages or tobacco. Ever seen a flashy white smile with red lipstick? It’s gorgeously bold and alluring, while also still looking clean and ladylike. If you’re going to wear red, wear it right and keep your teeth white!
+Glossy black
+A blue-red satin lip and a simple black jacket or cream dress.
 
-## 6. Put Away the Pink
+Burgundy
+A classic red lip and a wine-colored accessory, or a navy outfit.
 
-![Put Away the Pink](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/2013/09/01202035_1493_554x831.jpg)
+Espresso
+Tomato red with camel, warm gold or brown velvet.
 
-Whatever you do, don’t wear anything pink with red lipstick. This is a huge fashion no-no, and a red lipstick nightmare. This is a terrible clash of colors and will take away from the simple bold effects red can offer and seem overstated and tacky instead.
+Deep berry
+A cool red beside pink or plum clothes.
 
-## 7. Tone the Rest down
+Charcoal
+Red lipstick with silver jewelry and a quieter finish than glossy black.
 
-_ When wearing red lipstick, be sure to tone the rest of your makeup down by using subtler, skin-friendly shades. For example, red lipstick pairs well with light brown eyeshadows better than dark black eyeshadows, or purples. Don’t wear rosy red blush with red lipstick, but go with a softer blush shade. Also be sure to get a clean, pressed powder to keep your skin looking soft and polished. Make sure you don’t overstate your eyeliner and embrace a good mascara!
+The shades are starting points. Hold the polish next to the actual lipstick and see whether you like the contrast. A sheer burgundy can feel completely different from an almost-black wine. For more options, look at these [winter cherry nails](https://nails.allwomenstalk.com/of-my-favorite-must-have-red-nail-polishes/) or [charcoal and steel manicures](https://nails.allwomenstalk.com/grey-nails/).
 
-If you wear red lipstick, I’d love to hear from you! What are your favorite tips for ladies out there looking to wear this iconic lipstick shade?
+## Do give the rest of the look some room
 
-**Sources:** fitandfabliving.com_, _prevention.com_
+You can repeat the red in a dress, choose nails in the same color family as the outfit or let red stand out against a pastel. For a patterned outfit, bring the polish close to one of the quieter colors in the print. If you are wearing a [sequin skirt](https://fashion.allwomenstalk.com/how-to-style-a-sequin-skirt/), try a satin red lip and a single dark nail color so the textures each have a place.
+
+If you want a lighter eye, try your usual mascara or a short line at the upper lashes. A more dramatic eye can also work when that is the look you want. Take a quick photo in similar light to your venue and see where your eye goes first.
+
+## Do a quick touch-up check
+
+Blot once with a tissue if you have applied a lot of color. Check the inside edge of the lips after eating, and glance at your teeth before photos. If the center has faded, press a little more lipstick there and blend outward. A fresh layer everywhere can build up at the corners without solving the faded patch.
+
+## Frequently asked questions
+
+### What nail color goes with red lipstick?
+
+Black, deep burgundy, espresso, berry and charcoal all work. Pick a shade that you like next to the lip color and what you will wear.
+
+### How do I choose a red lipstick shade?
+
+Try a cooler blue-red and a warmer tomato red beside your outfit. See which one gives the effect you want in the light where you will wear it.
+
+### Should I wear matte or satin red lipstick?
+
+Matte gives a defined, even effect. Satin catches the light and suits a softer edge. Try your preferred finish before a party so you know where it needs touching up.
+
+### Can I wear lip liner with red lipstick?
+
+Yes. A similar shade helps define the edges. You can line the whole lip or draw lightly in the spots where you want more definition.
+
+### Can I wear a red lip with a colorful outfit?
+
+Yes. Let the red echo a color in your outfit or stand out against a pale shade. Use a dark nail color that brings the pieces together.
 
 ## Related Posts
 
-- [chanel stylo yeux waterproof long-lasting eyeliner](https://makeup.allwomenstalk.com/best-waterproof-eyeliners-that-never-fail/)
+- [best mascara to make lashes look thicker](https://makeup.allwomenstalk.com/amazing-mascaras-to-try-for-thicker-fuller-lashes/)
+- [yes to carrots lip balm](https://makeup.allwomenstalk.com/prettiest-all-natural-lip-glosses-for-fall/)
 - [fall red lipstick](https://makeup.allwomenstalk.com/gorgeous-drugstore-lipsticks-to-wear-this-fall/)
 - [mac 567 lipstick name](https://makeup.allwomenstalk.com/best-mac-lipsticks-youve-got-to-own/)
-- [paris stylo eye amour](https://makeup.allwomenstalk.com/best-black-mascaras-for-killer-eyes/)
-- [yes to carrots lip balm](https://makeup.allwomenstalk.com/prettiest-all-natural-lip-glosses-for-fall/)
-- [best mascara to make lashes look thicker](https://makeup.allwomenstalk.com/amazing-mascaras-to-try-for-thicker-fuller-lashes/)
-- [moisturizing lipsticks](https://makeup.allwomenstalk.com/best-moisturizing-lipsticks-for-hydrated-and-beautiful-lips/)
-- [best rated lip stain](https://makeup.allwomenstalk.com/best-lip-stains-for-the-most-kissable-lips/)
 - [mac best red lipstick](https://makeup.allwomenstalk.com/best-red-lipsticks-you-simply-must-have/)
+- [moisturizing lipsticks](https://makeup.allwomenstalk.com/best-moisturizing-lipsticks-for-hydrated-and-beautiful-lips/)
 - [violet red lipstick](https://makeup.allwomenstalk.com/tips-on-how-to-wear-purple-lipstick-like-a-pro/)
+- [chanel stylo yeux waterproof long-lasting eyeliner](https://makeup.allwomenstalk.com/best-waterproof-eyeliners-that-never-fail/)
+- [best rated lip stain](https://makeup.allwomenstalk.com/best-lip-stains-for-the-most-kissable-lips/)
+- [paris stylo eye amour](https://makeup.allwomenstalk.com/best-black-mascaras-for-killer-eyes/)
 - [7 Tips to Pulling off Red Lipstick ...](https://makeup.allwomenstalk.com/7-tips-to-pulling-off-red-lipstick/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 
