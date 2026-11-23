@@ -48,7 +48,7 @@ Its proprietary Multi-layered Liposome Nano Bicelle Technology delivers doubly c
 
 The formula combines several thoughtfully selected ingredients. Ceramides help reinforce the skin’s moisture barrier, while Shirakaba Water, derived from Japanese White Birch, provides mineral-rich hydration. Alteromonas Ferment Extract supports moisture retention, and Hydrolyzed Rice Leaf Extract helps improve the appearance of firmness around the eyes.
 
-There are additional botanical and protective ingredients worth noting. Okra Fruit Extract helps support natural hyaluronic acid production, while Purple Rice Bran Extract provides antioxidant benefits. Ectoine, a naturally occurring amino acid derivative, helps attract and retain moisture while supporting the skin��s defenses against environmental stressors. Vitamin E completes the formulation with antioxidant protection.
+There are additional botanical and protective ingredients worth noting. Okra Fruit Extract helps support natural hyaluronic acid production, while Purple Rice Bran Extract provides antioxidant benefits. Ectoine, a naturally occurring amino acid derivative, helps attract and retain moisture while supporting the skin’s defenses against environmental stressors. Vitamin E completes the formulation with antioxidant protection.
 
 The result is a particularly appealing addition to a winter skincare routine, when the delicate eye area can benefit from a little extra attention.
 
